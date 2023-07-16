@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Cuentos de ciencia ficción\n
-[Aquí pongo mis creatividad, letra por letra]"
+[Aquí pongo mi creatividad, letra por letra]"
 subtitle: "La complejidad es el argumento qué encuentro más fascinante, en cualquier historia"
 background: '/img/posts/moebius.png'
 ---

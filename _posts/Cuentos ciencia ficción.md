@@ -53,7 +53,7 @@ artefacto fabricado por el ser humano? - preguntó Holmes incrédulo a los cient
 observatorio en Chile.
 
 -Era el láser más perfecto que jamás hemos visto, todos los fotones detectados iban en la
-misma frecuencia, coherencia perfecta, ninguna máquina humana podría fabricarloRespondió su colega de la tierra de Neruda.
+misma frecuencia, coherencia perfecta, ninguna máquina humana podría fabricarlo Respondió su colega de la tierra de Neruda.
 
 Fue cómo si centenares de palomas se lanzaran a volar en la mente de Holmes, una
 reacción en cadena, decenas de pensamientos se volvieron miles. “Si usan láser deben

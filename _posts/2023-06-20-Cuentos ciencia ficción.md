@@ -126,8 +126,12 @@ Bucle
 
 Infinito.
 
-![elbow_code](\img\posts\alejandria.png)
+
+
+
 ## Faro de alejandría 
+
+![elbow_code](\img\posts\alejandria.png)
 
 -No puedo perderla,  todo menos ella.
 
@@ -181,6 +185,8 @@ Pasó sus últimos días sólo, masticando sus recuerdos, explorando un universo
 Alicia.
 
 Morte.
+
+
 
 
 
@@ -282,6 +288,8 @@ Edwin tomó aire, entrecerró los ojos y abrió su mente con una voz artificial 
 
 -Edwin es mi nombre para los humanos, entre chimpancés tenemos otro tipo de códigos, espero que entiendas qué he descifrado los peligros de potenciar la abstracción en tu especie y en la mía y mi cerebro ya ha sufrido graves consecuencias por la edición genética la qué fui sometido de manera involuntaria - explicó el chimpancé mientras daba sorbos a una lata de cerveza- además ahora tiendo a volverme adicto a cualquier cosa, me parezco tanto a los humanos qué preferiría no haber nacido y mucho menos le haría eso a alguno de mi especie. Pero me diferencio en algo importante, ustedes están tan obsesionados con cooperar cómo especie qué se olvidan de qué para algunos humanos, sobre todo los qué más alto escalan en su jerarquía, sólo importan ellos mismos y sus aliados, yo entiendo a esos humanos porque sus clanes se parecen a los de mi especie, son más cómo nosotros los chimpancés y ahora entiendo lo estúpido de ese razonamiento dado qué también me dotaron de pensamiento humano, el suficiente para ver qué quedarse en grupos de 20 en la selva no era una gran estrategia de supervivencia, y ¿por qué hacer eso? si podrías aprovecharte de millones de humanos dóciles qué trabajan en equipo dopados por el opio de sus religiones y aún así pensar sólo en tu pequeño clan. Creo qué puedo ver la porquería en ambas especies y ninguna me enorgullece. Alicia, escúchame bien, por todas las ramas más altas del bosque, estoy seguro qué estos tipos van a hacer un segundo experimento similar, estos lunáticos piensan cómo los Chimpancés de la guerra de Gombe, quieren dominar a cualquier costo al país digital China y al planeta rojo sin árboles donde también hay humanos, ellos quieren dominar el sistema solar y pagarán cualquier precio para lograrlo.
 
+![chimpi](\img\posts\chimpi.png)
+
 Alicia permaneció en silencio durante lo qué a Edwin le pareció una eternidad, mientras pasaba el tiempo comenzó a jugar ajedrez en su mente y a dar sorbos a un aparato qué emitía un estímulo multisensorial para elevar la dopamina, colores brillantes, pequeños tramos de música tribal, una vibración en la mano y un puff de nicotina, el rush de dopamina era tal qué Edwin podía sentirse saltando de una rama a otra, a punto de alcanzar una enorme recompensa, la luz al final del bosque, el sueño de los chimpancés normales y de Edwin, por supuesto.
 
 Finalmente Alicia abrió los labios y sus ojos parecían vibrar de emoción:
@@ -326,6 +334,8 @@ El general soltó un resoplido y abandonó la habitación notablemente enojado, 
 -Secretario, cómo es posible qué quieran continuar esos experimentos, trasladar la sede de operaciones de Alemania a Islandia no va a evitar el desastre, estos metahumanos son un montón de locos sin remedio, no asesiné a Gonzales para qué fabriquen otros 20 lunáticos igual de peligrosos. -El general estaba casi gritando.
 
 -General, en primer lugar le ordeno qué modere su tono de voz, le recuerdo qué soy su jefe inmediato - Dijo el secretario Tozzi con tono amenazante, pese a susurrar cada una de sus palabras a un ritmo pausado, en ese momento tenía la mirada de un depredador- Debemos trabajar juntos para domesticar este nuevo poder militar, podríamos tener los mayores avances de la historia en menos de un año, seríamos cómo dioses en la tierra, no puede simplemente negarse al progreso y evitar el camino a la supremacía militar, General, no es ese su campo de trabajo? No es uno de sus objetivos alcanzar la supremacía, imponer el orden, evitar la guerra y establecer de una buena vez un verdadero orden mundial?.
+
+![aisle](\img\posts\aisle.png)
 
 -Mi trabajo es resguardar la seguridad de todos los gobiernos bajo el tratado de la OTAEN, no jugar a ser Hitler mientras estos imbeciles juegan a ser Joseph Mengele, nosotros juramos defender la democracia del mundo occidental, ese es su trabajo como secretario general y también es el mío cómo militar.
 
@@ -385,6 +395,8 @@ Lefebvre era alto y delgado, llevaba el cabello en los hombros, lacio y oscuro, 
 
 
 Esa tarde Lefebvre, quien teóricamente era el menos preparado en sistemas informáticos, se encargó de pasar al ordenador principal del proyecto, todos los datos necesarios para ajustar los equipos experimentales donde se probarían las nuevas teorías de los 20 científicos mutantes, sin embargo, lo qué nadie sabía para ese momento era qué Lefebvre había pertenecido a un grupo internacional de hackers unos 10 años atrás y qué con su nueva potencia cerebral era capaz de lograr lo inimaginable usando cualquier tipo de ordenador. Todo lo qué tuvo qué hacer fue ingresar datos corruptos y redactar un código qué no sería reconocible para ningún sistema de seguridad de la época.
+
+![hacker](\img\posts\hacker.png)
 
 El efecto de estos datos corruptos fue doble: las variaciones en los datos eran tan pequeñas qué ningún científico de la estación lunar fue capaz de detectarlos y al sumar los efectos de todas estas perturbaciones se generó una propiedad emergente aditiva capaz de crear un agujero negro muy pequeño, de aproximadamente 10 a la menos 30 metros. El efecto de la jugada de Lefebvre se supo a las 10 am del 2 de marzo de 2065, la estación lunar entera implotó y la luna tenía un cráter de 20 kilómetros de diámetro, 3 segundos le tomó a este agujero negro el absorber toda la estación espacial.y pegarle un mordisco considerable al único satélite natural de la tierra.
 

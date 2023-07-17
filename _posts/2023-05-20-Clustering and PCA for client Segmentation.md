@@ -26,6 +26,8 @@ background: '/img/posts/elbow.png'
 
 7)PCA for finding feature importances
 
+![pca_code](\img\posts\pca_code.png)
+
  [git_hub link to project repository](https://github.com/Al-goritmus/clustering)
 
 #### note: 
@@ -33,4 +35,4 @@ This code is made for trying different methods of imputing, then different numbe
 
 ![PCA_feature_importance](\img\posts\pca.png)
 
-![PCA](\img\posts\pac2.png)
+![PCA](\img\posts\pca2.png)

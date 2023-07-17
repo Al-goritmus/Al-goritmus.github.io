@@ -400,6 +400,8 @@ Esa tarde Lefebvre, quien teóricamente era el menos preparado en sistemas infor
 
 El efecto de estos datos corruptos fue doble: las variaciones en los datos eran tan pequeñas qué ningún científico de la estación lunar fue capaz de detectarlos y al sumar los efectos de todas estas perturbaciones se generó una propiedad emergente aditiva capaz de crear un agujero negro muy pequeño, de aproximadamente 10 a la menos 30 metros. El efecto de la jugada de Lefebvre se supo a las 10 am del 2 de marzo de 2065, la estación lunar entera implotó y la luna tenía un cráter de 20 kilómetros de diámetro, 3 segundos le tomó a este agujero negro el absorber toda la estación espacial.y pegarle un mordisco considerable al único satélite natural de la tierra.
 
+![moon](\img\posts\moon.png)
+
 Song se paró de un salto al ver la noticia en sus G-lens, él sabía bien qué en todo el mundo (y en la luna) se estaban realizando experimentos basados en los avances científicos del proyecto AE NOVA y sus sospechas se dirigieron de inmediato a Lefevbre, la única persona de la qué desconfiaba en ese momento, “¿Será posible, qué este tipo esté utilizando el proyecto cómo un vehículo para proyectar su odio a la humanidad? y si lo hizo, ¿tendremos ocasión de probar qué lo hizo?”. Una llamada apareció en su vista, era el secretario general, a Song le comenzaron a revolotear murciélagos en el estómago.
 
 -Dr. Song, asumo qué ya está al tanto de la destrucción del acelerador lunar, estamos investigando, todo parece indicar qué algunos de los datos eran corruptos.

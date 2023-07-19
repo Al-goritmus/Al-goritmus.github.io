@@ -6,9 +6,15 @@ subtitle: "La complejidad es el argumento qué encuentro más fascinante, en cua
 background: '/img/posts/moebius.png'
 ---
 
-![elbow_code](\img\posts\writer.png)
+![writer](\img\posts\writer.png)
 
-## Bucle infinito (primer cuento)
+
+* [Bucle infinito](#bucle-inifinito)
+* [Faro de alejandría](#faro de alejandría)
+* [Mente humana, sobrehumana](#Mente humana, sobrehumana)
+* [La matrioska de Indra](#La matrioska de Indra)
+
+## <a id="bucle-infinito"></a>Bucle infinito
 
 Bucle infinito.
 
@@ -129,9 +135,10 @@ Infinito.
 
 
 
-## Faro de alejandría 
+## <a id="Faro de alejandría"></a>Faro de alejandría
 
-![elbow_code](\img\posts\alejandria.png)
+
+![alejandria](\img\posts\alejandria.png)
 
 -No puedo perderla,  todo menos ella.
 
@@ -191,9 +198,7 @@ Morte.
 
 
 
-
-
-## Mente humana, sobrehumana
+## <a id="Mente humana, sobrehumana"></a>Mente humana, sobrehumana
 
 ![edwin](\img\posts\chimpanzee.png)
 
@@ -442,7 +447,7 @@ Los científicos fueron recibidos cómo héroes pues la hazaña de escape había
 La suerte estaba echada, era el principio de la primera guerra solar.
 
 
-## La matrioska de Indra
+## <a id="La matrioska de Indra"></a>La matrioska de Indra
 
 La matrioska de Indra...
 

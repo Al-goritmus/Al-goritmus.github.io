@@ -13,6 +13,7 @@ background: '/img/posts/moebius.png'
 * [Faro de alejandría](#faro de alejandría)
 * [Mente humana, sobrehumana](#Mente humana, sobrehumana)
 * [La matrioska de Indra](#La matrioska de Indra)
+* [El Canibal de la logia](#el-canibal-de-la-logia)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 
@@ -563,6 +564,106 @@ Esa primera noche de luna llena en Eternal y sumergidos de manera indefinida lue
 10 órdenes de simulación por fuera de Eternal, Indra sacudió su red de perlas en silencio, era hora de fabricar una nueva tragedia, todo camino de aprendizaje requiere sufrimiento y desde su perspectiva, la de la eternidad, la simulación de Aarón era sólo un pequeño bug en el sistema, alguien qué por algunos años logró escapar al peso de su destino inevitable.
 
 ![Indra2](\img\posts\perla_indra.png)
+
+
+
+## <a id="El Canibal de la logia"></a>El Canibal de la logia
+
+![canibal](\img\posts\canibal.png)
+
+El canibal de la logia
+
+Mariano era casi todo el tiempo una persona tranquila, excepto por su obsesión con el aseo y una serie de rituales compulsivos qué lo atormentaban, era habitual para él hacer algo y percibir una combinación de enojo y felicidad con respecto al mismo resultado, cómo si en su interior alguien lo mirara con decepción mientras experimentaba el placer de hacer lo qué deseaba, siempre llevaba consigo una sensación de tristeza interrumpida por la felicidad de hacer algo qué hubiera planeado cuidadosamente. Atribuía esta sensación a su cultura rioplatense, la tierra dónde nació, pues era precisamente una combinación de la melancolía de los europeos qué debieron dejar sus tierras y la alegría de los habitantes de América, la qué explicaba su sentir. Tenía esta combinación de la tristeza del inmigrante y la jovialidad de aquel qué nace y muere en el mismo lugar, la de aquel qué nace dónde nunca tendrá qué preocuparse por dejarlo todo, por cambiar su vida, por reinventarse ni redefinirse. Me refiero a la alegría qué caracteriza a estas personas qué se sientan a tomar ron hasta olvidarse de su propio olvido y no pasa nunca nada diferente, para ellos no existe el vacío ni la aventura, lo único qué cambia es la temperatura de la brisa, cómo cuando cae el verano en diciembre y el calor es abrasador. Los ancestros de Mariano se reconfortaron frente a las hogueras durante siglos y padecieron la potencia del sol durante largas migraciones, luego vino la radio, el tranvía con el tabaco y el whisky, luego llegó la soledad de quienes habitaron los grandes edificios, dónde sólo los acompañaba el eco de sus pasos y la mala cara de algún vecino, el otro miserable residente de las metrópolis qué cargaba en sus hombros el peso de la ciudad, luego todo se fue a la mierda.
+
+Mariano tuvo qué dejar la vida qué construyó durante 35 años debido a una combinación de sucesos desafortunados. Nunca tuvo hijos, afortunadamente, además su esposa falleció por tuberculosis, o eso le decían los médicos, él siempre sospechó de una indigena qué les echó una maldición luego de que le atropellaron a una vaca un par de años atrás, su mente divagaba entre un montón de recuerdos, aún recordaba el aroma de su amada y conservaba algunas de sus prendas, entre ellas un vestido teñido de rosas qué ella usaba los domingos cuando iban a Córdoba. Pero Mariano ya no podía dibujar en su mente ese rostro, no con precisión, tampoco esa voz y esto último era lo qué mayor dolor le causaba, pues una foto podría traer el rostro, pero no existía registro de la voz de Sofía, era aterrador pensar qué el efecto práctico de esto era cómo decir qué la voz de su querida compañera jamás sonó en el mundo, él no podía recordarla y no disponía ningún registro, nadie podría emitir esos sonidos de vuelta, la muerte viene con ese peso maldito de ser irreversible y de borrar cualquier posibilidad de compartir con alguien.
+
+![bomb](\img\posts\bomb.png)
+
+Quedaban muy pocas cámaras en el mundo de todas formas, la mayoría de teléfonos celulares perdieron sus baterías y ya nadie los fabricaba, el sol ya no hacía a nadie tener que cubrirse la frente con una mano. El invierno nuclear aisló a los habitantes de la tierra luego de un desafortunado desencuentro entre potencias asiáticas por una isla llamada Taiwán, el continente más prospero del mundo se aniquiló a sí mismo y de la misma forma mató al sol, el más antiguo de los dioses. Era difícil conseguir energía eléctrica, el post-apocalipsis era un lugar terrible para vivir. Para julio de 2045 la humanidad había sufrido una reducción drástica en su población, los cultivos perecieron en todo el planeta, hubo hambrunas masivas y guerras por recursos, pocas personas se atreverían a traer hijos a un mundo cómo ese. Para colmo de males Mariano fue desterrado luego de qué la comunidad de supervivientes en la qué habitaba, se enteró de cuantos alimentos y energía tenía bajo su custodia, siempre fue un obsesivo y un paranóico del apocalipsis qué se dedicó durante años a acumular recursos en un sótano, y ahora sus bienes habían sido arrebatados. Se vio obligado a abandonar sus terrenos y sus posesiones, era viernes en la mañana y hacía frío cuando un grupo de pobladores llegó a su casa con armas y una orden de desalojo, se le dijo qué perdonarle la vida era lo mejor qué podían hacer por él.
+
+El camino era para entonces el mejor y el peor amigo de Mariano, sus recuerdos de una vida feliz junto a su amada Sofía eran cada vez más borrosos, toda su familia había muerto, cargaba con un enorme equipaje, el peso de perderlo todo y en su horario ahora había una sola tarea: sobrevivir. Había tenido qué asesinar a 4 hombres y una mujer, la única alternativa a este terrible acto era morir en manos de alguien más, a veces cuando deambulaba alguna calle solitaria, se topaba con personas transfiguradas por el dolor, con rostros de ojos hundidos, algunos lucían enfermos o deshidratados, algunos hambrientos y sucios. Llevaba 4 años sin ver una sonrisa, la última fue la del líder de la comunidad qué le quitó sus recursos, un tipo qué pretendía sonar compasivo pero qué sentía un profundo entusiasmo por acceder a las reservas qué Mariano acumuló cuidadosamente durante 15 años. La tarde del 24 de diciembre de 2049, esto ocurrió en una playa, en la zona rural de Valparaíso, para entonces la mayor parte de Chile se había convertido en un desierto y había muy pocas personas en la zona dónde buscaba desesperadamente una reserva de agua o algún pozo para calmar su sed. Mariano quien creía ser la única persona qué preservaba la consciencia de la fecha, se topó con una mujer qué portaba algo muy extraño, una sonrisa pícara de lado a lado, vestía una especie de kimono de seda japonesa y una chaqueta impermeable gruesa y le dedicó una mirada fugaz a Mariano antes de continuar su camino, la tranquilidad qué emanaba esa mujer mientras caminaba sóla en una playa del fin del mundo insinuaba una sola cosa: iba bien armada.
+
+Cómo jamás lo hubiera hecho antes del apocalipsis, Mariano decidió seguir a esta mujer con la clara intención de robar o aprovecharse de cualquier posesión qué la trajera con esa sonrisa, se ocultó tras varios arbustos secos, mientras seguía a esta extraña, cuidando en cada paso no ser descubierto, 20 minutos más tarde se encontraron frente a una mansión de 3 pisos, Mariano sólo pudo pensar en la riqueza qué estas personas habrían tenido antes del fin del mundo, cuánta comida o agua tendrían, su versión más primitiva experimentó felicidad. Desenvainó un cuchillo y se dispuso a luchar a muerte por lo qué fuera que esa mujer estuviera ocultando. Se escabulló en los terrenos de la casa mientras la veía golpear un portón y entrar a la supuesta seguridad de la mansión, corrió hacia la casa y se asomó por la única ventana qué no estaba tapiada con madera, al interior estaban: 2 hombres, la mujer de la sonrisa anacrónica y 3 niños qué la saludaban de manera cariñosa, uno de los hombres lucía anciano, el cabello canoso, era un hombre delgado y vestía de manera elegante, se movía con el lenguaje corporal de haber sido alguien poderoso en mejores tiempos, el otro hombre lucía más joven, unos 40 años, se veía fuerte pero le faltaba una pierna, toda razón para explicar qué esta mujer caminara tan tranquila por la playa y sin ninguna clase de escolta.
+
+![mansion](\img\posts\mansion.png)
+
+Los observó durante horas, esperando el momento correcto para atacar, decidió qué lo haría en la noche cuando bajaran la guardia. 
+
+Hacia la medianoche y cuando las velas de la casa se habían apagado, decidió qué era hora de invadir la propiedad la familia Rojas (o al menos eso decía el buzón afuera de la mansión). Ingresó a hurtadillas y de inmediato lo impactó un olor a madera fina y a cera, el sándalo vino a continuación, entró por una habitación del segundo piso, una ventana pequeña qué le ocasionó un corte superficial en el abdomen mientras se escabullía al interior de un baño lujoso, trató sin éxito de detener el sangrado y luego de resignarse, comenzó a reptar por el suelo mientras rogaba por no hacer ningún ruido qué alertara a los Rojas, se desplazó por el pasillo del segundo piso utilizando la marcha de los reptiles qué traería programada en algún lugar de su cerebro primitivo, el hambre le apuñalaba el estómago y su boca llevaba 4 días sin probar una gota de agua, la necesidad era el motor de cada uno de sus esfuerzos. 
+
+Bajó las escaleras de espaldas y acostado para no hacer crujir ninguna parte de la estructura, percibió el olor a una chimenea qué ardió durante horas, se incorporó cuando llegó al primer piso, dio una mirada a la biblioteca, por una vieja costumbre y decidió ir directo a la cocina, iba a hurtadillas a punto de completar el primer objetivo de su misión, su boca estaba más seca qué nunca, cuando levantó la mirada luego de verificar qué no hubiera nada en el camino de sus pies, vio un bate describiendo un amplio ángulo directo hacia su rostro.
+
+..
+
+[Aquí está el enlace a mi canción favorita en Spotify](https://open.spotify.com/track/5zb7npjQqoJ7Kcpq4yD9qn)
+
+Al día siguiente despertó mareado y con dolor de cabeza, miró a su alrededor y pudo notar qué toda la familia excepto los niños, lo habían rodeado listos para quitarle la vida si hacía alguna estupidez. Los Rojas no eran personas inocentes, lo estuvieron esperando toda la noche.
+
+-Nombre.-Requirió la mujer qué le apuntaba con una beretta.
+
+-Ma…Mariano, Mariano…Ledesma -articuló Mariano con dificultad mientras notaba dolor intenso en el lado izquierdo de su mandíbula.
+
+-Solo quería algo de comida y debemos perdonar su pobre vida -ironizó la mujer de la sonrisa pícara, para entonces ausente.
+
+-Quería un poco de agua señora, lamento haberme metido así en su propiedad, llevaba varios días sin suerte para encontrar agua y…
+
+-Señor, Mariano...Ledesma, verdad?, tenemos la intención de brindarle agua, pero qué garantía tendríamos de qué no va a regresar a robarnos? - interrogó el hombre viejo qué hablaba cómo un caballero de principios del siglo 20, mientras rellenaba una pipa con tabaco.
+
+-Señor…no sé su nombre, pero puedo garantizarles qué si perdonan la vida, no volveré a molestarlos, pertenecí a la logia masónica, me pareció haber visto un libro con una escuadra y un compás. -Mariano negociaba su vida y  la remota posibilidad de haber tenido algo en común cómo la logia masónica le pareció la mejor de sus esperanzas.
+
+El viejo miró con curiosidad a los otros Rojas mientras encendía la pipa.
+
+-Ama a los buenos…-comenzó.
+
+-Ama a los buenos, compadece a los débiles, huye de los malvados, más no odies a nadie - completó Mariano con la voz tenue y sorprendido de su propia memoria.
+
+-Adora..-continuó el viejo.
+
+-Adora al gran arquitecto del universo - Mariano comenzaba a percibir esperanza en su pecho, recordó fugazmente cuando iba con sus amigos de la logia y su familia a disfrutar los domingos en su finca en Córdoba.
+
+-Carolina, lamento tener qué decirlo, pero no me atrevería a quitarle la vida a un hermano de la logia, es algo qué mi código no me permite, tampoco me gustaría saber qué tú se la quitas. -Negoció el viejo. - ¿Podrías perdonar la vida a este hombre?.
+
+La sala de la casa Rojas se quedó en silencio por un minuto.
+
+-Quien lo diría Mariano, quien diría que haber sido un elitista con fantasías de superioridad intelectual salvaría tu vida en un mundo cómo este - Carolina sonaba cómo un juez benévolo luego de quitarle la pena de muerte a algún pobre diablo.
+
+-Gracias, muchas gracias. Cómo…cómo gesto de agradecimiento, podría ofrecer mis conocimientos médicos a ustedes.
+
+Los 3 adultos de la casa se miraron desconcertados, cómo si Mariano hubiera dado justo en el blanco, en la mitad de la noche y con un ojo tuerto.
+
+Carolina dio un resoplido y se sentó en una silla de la cocina, cómo anticipando una discusión sin sentido.
+
+-Mi pierna izquierda, bueno dónde antes tenía la pierna izquierda, tengo una comezón qué no se quita con nada Mariano, no creo qué traiga algo con usted para tratar eso, pero…¿es posible tratarlo?.
+
+-Puedo preguntar por qué perdió la pierna? - Mariano pensó qué en otros tiempos, esta pregunta de rutina no era una situación de vida o muerte.
+
+-La bomba de Santiago, en Santiago impactó un misil intercontinental chino cuando Chile se unió a la coalición qué defendía la independencia de Taiwan, el apagón nacional y el caos qué invadió el país ocasionaron la explosión de un reactor nuclear aquí en Valparaíso, la radiación me ocasionó un osteosarcoma y mi esposa qué era veterinaria me realizó una amputación, ¿Le sirve de algo esa explicación, doctor?  - la palabra doctor venía cargada de una ironía incrédula por parte de Gabriel.
+
+![atomic](\img\posts\atomic.png)
+
+-Es el síndrome del miembro fantasma -soltó Mariano aliviado mientras caminaba hacia una silla y tomaba con afán un vaso de agua servido por Carolina. - El tratamiento es simple, debe poner un espejo frente a la pierna qué no perdió y rascarse con fuerza, así engañará a su mente y creerá qué por fin se pudo rascar.
+
+Gabriel miró alrededor buscando un espejo.
+
+Mariano pasó su mirada por la cocina y notó varios trozos de carne sobre el muro dónde se preparaban los alimentos, algo en esto le pareció extraño, “¿De dónde sacaba carne esta gente? ¿En una zona desértica dónde la ganadería era un arte olvidado?  ¿Por qué Carolina dejó qué la siguiera hasta la casa?”. El peor de los escenarios se dibujó de golpe en su imaginación, podía percibir los latidos de su corazón aumentando su ritmo y fuerza.
+
+-Creo qué es hora de irme, agradezco el agua qué me brindaron y espero haberles sido de ayuda - dijo Mariano con la voz temblorosa mientras se ponía de pie, aún mareado por el batazo qué había recibido la noche anterior.
+
+-¿Dime una cosa, estás asustado Mariano? -El viejo sonaba ahora menos civilizado qué cuando recordó su pertenencia a la francmasonería. -Estás bastante delgado y tampoco permitiría a nadie aquí hacerle daño a un hermano, ya sabes, por el principio de ayuda mutua, la logia nos une de por vida, ahora…fuera de nuestra propiedad. -sentenció el viejo mientras saboreaba el tabaco de su pipa y sacaba un reloj de su bolsillo.
+
+![masonico](\img\posts\mansion.png)
+
+Gabriel rascaba vigorosamente su pierna derecha con el lado sin filo de un hacha ensangrentada mientras miraba al espejo y su rostro comenzaba a dibujar alivio.
+
+-Cómo te atrevas a volver, nos encargaremos de qué veas cómo preparamos y cenamos cada músculo de tus piernas. -Carolina volvía a tener una sonrisa pícara de lado a lado y Mariano pudo jurar qué la vio pasear la punta de su lengua por su labio superior.
+
+Mariano se puso de pie, caminó directo hacia la puerta y la abrió despacio, comenzó a dar pasos largos y cuando se sintió fuera del alcance de la beretta de Carolina, comenzó a correr con todas sus fuerzas. 
+
+Cuando tuvo oportunidad de  parar a recuperar el aliento pudo ver una zanja al lado izquierdo de la vía dónde había ropa, zapatos grandes y pequeños, pieles humanas y huesos. Volteó a ver la mansión de caníbales de la qué tuvo la suerte de salir vivo, respiro profundo y retomó el camino, el eterno camino a ningún lugar, trató sin éxito de recordar a Sofía y se echó a andar en busca de algo para comer, cualquier cosa menos carne humana. Su antigua personalidad obsesiva y  acumuladora no servían de nada en un mundo dónde todo mundo ya había perdido todo.
+
+
+
+
 
 
 

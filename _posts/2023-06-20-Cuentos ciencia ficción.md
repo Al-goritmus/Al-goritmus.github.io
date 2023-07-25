@@ -595,7 +595,7 @@ Bajó las escaleras de espaldas y acostado para no hacer crujir ninguna parte de
 
 ..
 
-[Aquí está el enlace a mi canción favorita en Spotify](https://open.spotify.com/track/5zb7npjQqoJ7Kcpq4yD9qn)
+[canción apropiada](https://open.spotify.com/track/5zb7npjQqoJ7Kcpq4yD9qn)
 
 Al día siguiente despertó mareado y con dolor de cabeza, miró a su alrededor y pudo notar qué toda la familia excepto los niños, lo habían rodeado listos para quitarle la vida si hacía alguna estupidez. Los Rojas no eran personas inocentes, lo estuvieron esperando toda la noche.
 

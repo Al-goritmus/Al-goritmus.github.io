@@ -585,8 +585,6 @@ El camino era para entonces el mejor y el peor amigo de Mariano, sus recuerdos d
 
 Cómo jamás lo hubiera hecho antes del apocalipsis, Mariano decidió seguir a esta mujer con la clara intención de robar o aprovecharse de cualquier posesión qué la trajera con esa sonrisa, se ocultó tras varios arbustos secos, mientras seguía a esta extraña, cuidando en cada paso no ser descubierto, 20 minutos más tarde se encontraron frente a una mansión de 3 pisos, Mariano sólo pudo pensar en la riqueza qué estas personas habrían tenido antes del fin del mundo, cuánta comida o agua tendrían, su versión más primitiva experimentó felicidad. Desenvainó un cuchillo y se dispuso a luchar a muerte por lo qué fuera que esa mujer estuviera ocultando. Se escabulló en los terrenos de la casa mientras la veía golpear un portón y entrar a la supuesta seguridad de la mansión, corrió hacia la casa y se asomó por la única ventana qué no estaba tapiada con madera, al interior estaban: 2 hombres, la mujer de la sonrisa anacrónica y 3 niños qué la saludaban de manera cariñosa, uno de los hombres lucía anciano, el cabello canoso, era un hombre delgado y vestía de manera elegante, se movía con el lenguaje corporal de haber sido alguien poderoso en mejores tiempos, el otro hombre lucía más joven, unos 40 años, se veía fuerte pero le faltaba una pierna, toda razón para explicar qué esta mujer caminara tan tranquila por la playa y sin ninguna clase de escolta.
 
-![mansion](\img\posts\mansion.png)
-
 Los observó durante horas, esperando el momento correcto para atacar, decidió qué lo haría en la noche cuando bajaran la guardia. 
 
 Hacia la medianoche y cuando las velas de la casa se habían apagado, decidió qué era hora de invadir la propiedad la familia Rojas (o al menos eso decía el buzón afuera de la mansión). Ingresó a hurtadillas y de inmediato lo impactó un olor a madera fina y a cera, el sándalo vino a continuación, entró por una habitación del segundo piso, una ventana pequeña qué le ocasionó un corte superficial en el abdomen mientras se escabullía al interior de un baño lujoso, trató sin éxito de detener el sangrado y luego de resignarse, comenzó a reptar por el suelo mientras rogaba por no hacer ningún ruido qué alertara a los Rojas, se desplazó por el pasillo del segundo piso utilizando la marcha de los reptiles qué traería programada en algún lugar de su cerebro primitivo, el hambre le apuñalaba el estómago y su boca llevaba 4 días sin probar una gota de agua, la necesidad era el motor de cada uno de sus esfuerzos. 
@@ -651,7 +649,7 @@ Mariano pasó su mirada por la cocina y notó varios trozos de carne sobre el mu
 
 -¿Dime una cosa, estás asustado Mariano? -El viejo sonaba ahora menos civilizado qué cuando recordó su pertenencia a la francmasonería. -Estás bastante delgado y tampoco permitiría a nadie aquí hacerle daño a un hermano, ya sabes, por el principio de ayuda mutua, la logia nos une de por vida, ahora…fuera de nuestra propiedad. -sentenció el viejo mientras saboreaba el tabaco de su pipa y sacaba un reloj de su bolsillo.
 
-![masonico](\img\posts\masonico.png)
+![masonico](\img\posts\old_man4.png)
 
 Gabriel rascaba vigorosamente su pierna derecha con el lado sin filo de un hacha ensangrentada mientras miraba al espejo y su rostro comenzaba a dibujar alivio.
 
@@ -661,7 +659,7 @@ Mariano se puso de pie, caminó directo hacia la puerta y la abrió despacio, co
 
 Cuando tuvo oportunidad de  parar a recuperar el aliento pudo ver una zanja al lado izquierdo de la vía dónde había ropa, zapatos grandes y pequeños, pieles humanas y huesos. Volteó a ver la mansión de caníbales de la qué tuvo la suerte de salir vivo, respiro profundo y retomó el camino, el eterno camino a ningún lugar, trató sin éxito de recordar a Sofía y se echó a andar en busca de algo para comer, cualquier cosa menos carne humana. Su antigua personalidad obsesiva y  acumuladora no servían de nada en un mundo dónde todo mundo ya había perdido todo.
 
-![poe](\img\posts\poe_running.png)
+![poe](\img\posts\poe_running2.png)
 
 
 

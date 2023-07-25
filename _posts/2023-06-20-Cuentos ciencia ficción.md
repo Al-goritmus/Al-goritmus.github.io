@@ -661,6 +661,8 @@ Mariano se puso de pie, caminó directo hacia la puerta y la abrió despacio, co
 
 Cuando tuvo oportunidad de  parar a recuperar el aliento pudo ver una zanja al lado izquierdo de la vía dónde había ropa, zapatos grandes y pequeños, pieles humanas y huesos. Volteó a ver la mansión de caníbales de la qué tuvo la suerte de salir vivo, respiro profundo y retomó el camino, el eterno camino a ningún lugar, trató sin éxito de recordar a Sofía y se echó a andar en busca de algo para comer, cualquier cosa menos carne humana. Su antigua personalidad obsesiva y  acumuladora no servían de nada en un mundo dónde todo mundo ya había perdido todo.
 
+![poe](\img\posts\poe_running.png)
+
 
 
 

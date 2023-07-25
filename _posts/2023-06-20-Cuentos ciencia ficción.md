@@ -651,7 +651,7 @@ Mariano pasó su mirada por la cocina y notó varios trozos de carne sobre el mu
 
 -¿Dime una cosa, estás asustado Mariano? -El viejo sonaba ahora menos civilizado qué cuando recordó su pertenencia a la francmasonería. -Estás bastante delgado y tampoco permitiría a nadie aquí hacerle daño a un hermano, ya sabes, por el principio de ayuda mutua, la logia nos une de por vida, ahora…fuera de nuestra propiedad. -sentenció el viejo mientras saboreaba el tabaco de su pipa y sacaba un reloj de su bolsillo.
 
-![masonico](\img\posts\mansion.png)
+![masonico](\img\posts\masonico.png)
 
 Gabriel rascaba vigorosamente su pierna derecha con el lado sin filo de un hacha ensangrentada mientras miraba al espejo y su rostro comenzaba a dibujar alivio.
 

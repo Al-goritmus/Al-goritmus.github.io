@@ -647,13 +647,17 @@ Mariano pasó su mirada por la cocina y notó varios trozos de carne sobre el mu
 
 -Creo qué es hora de irme, agradezco el agua qué me brindaron y espero haberles sido de ayuda - dijo Mariano con la voz temblorosa mientras se ponía de pie, aún mareado por el batazo qué había recibido la noche anterior.
 
--¿Dime una cosa, estás asustado Mariano? -El viejo sonaba ahora menos civilizado qué cuando recordó su pertenencia a la francmasonería. -Estás bastante delgado y tampoco permitiría a nadie aquí hacerle daño a un hermano, ya sabes, por el principio de ayuda mutua, la logia nos une de por vida, ahora…fuera de nuestra propiedad. -sentenció el viejo mientras saboreaba el tabaco de su pipa y sacaba un reloj de su bolsillo.
+-¿Dime una cosa, estás asustado Mariano? -El viejo sonaba ahora menos civilizado qué cuando recordó su pertenencia a la francmasonería, su rostro hasta entonces serio se deformó hasta exponer una sonrisa extraña. -Tonterías, estás bastante delgado y tampoco permitiría a nadie aquí hacerle daño a un hermano, ya sabes, por el principio de ayuda mutua qué los dos conocemos bien, la logia nos une de por vida. Cuando el supremo arquitecto decidió qué era hora de recordarnos el hambre y la necesidad, hizo un llamado a los hombres fuertes, hombres cómo nosotros, para construir un nuevo mundo, un lugar mejor. La logia malversó sus buenas costumbres y nos volvimos blandos, dejamos de poner lenguas cómo corbatas a los que divulgaran su pertenencia a nuestra hermandad, dejamos de ser fuertes. ¿Ves ese craneo sobre el compás de bronce? Te presento a Fabio, él me enseñó todo lo qué sé sobre el apocalipsis, vino a advertirme unos años antes y me pidió un consejo para publicar un libro sobre las viejas costumbres de la logia, tuve qué devorar su escencia para impedir una catastrofe mayor. 
+
+-Supongo qué es usted nivel 32 y supongo qué cumplía su deber al cuidar con recelo nuestros secretos- Mariano intentaba sonar cómplice adulando el ego del psicópata ilustrado qué tenía al frente, cualquier cosa para salir vivo de la casa del carnicero.
+
+-Me gustaría discutir los detalles del mundo qué viene pero ya no tenemos tiempo, querido amigo Mariano…largo de nuestra propiedad. -sentenció el viejo mientras encendía una vela y buscaba un reloj en su bolsillo.
 
 ![masonico](\img\posts\old_man4.png)
 
 Gabriel rascaba vigorosamente su pierna derecha con el lado sin filo de un hacha ensangrentada mientras miraba al espejo y su rostro comenzaba a dibujar alivio.
 
--Cómo te atrevas a volver, nos encargaremos de qué veas cómo preparamos y cenamos cada músculo de tus piernas. -Carolina volvía a tener una sonrisa pícara de lado a lado y Mariano pudo jurar qué la vio pasear la punta de su lengua por su labio superior.
+-Si te atreves a volver, me voy a encargar de qué veas cómo preparamos y cenamos cada músculo de tus piernas. -Carolina volvía a tener una sonrisa pícara de lado a lado y Mariano pudo jurar qué la vio pasear la punta de su lengua por su labio superior.
 
 Mariano se puso de pie, caminó directo hacia la puerta y la abrió despacio, comenzó a dar pasos largos y cuando se sintió fuera del alcance de la beretta de Carolina, comenzó a correr con todas sus fuerzas. 
 

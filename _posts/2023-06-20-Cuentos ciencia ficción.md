@@ -641,8 +641,6 @@ Carolina dio un resoplido y se sentó en una silla de la cocina, como anticipand
 
 ![atomic](\img\posts\atomic.png)
 
-Corrección del texto:
-
 -Es el síndrome del miembro fantasma - soltó Mariano aliviado mientras caminaba hacia una silla y tomaba con afán un vaso de agua servido por Carolina. - El tratamiento es simple, debe poner un espejo frente a la pierna que no perdió y rascarse con fuerza, así engañará a su mente y creerá que por fin se pudo rascar.
 
 Gabriel miró alrededor buscando un espejo.

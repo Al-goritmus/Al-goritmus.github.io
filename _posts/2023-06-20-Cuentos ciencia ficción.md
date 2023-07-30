@@ -704,7 +704,7 @@ Pero no podemos decir qué Lina fuera precisamente un robot sin emociones, era e
 
 ..
 
-En una sala insonorizada y completamente oscura se encontraban dos entidades de naturaleza completamente diferente, una máquina perfecta y una mujer imperfecta. El lugar poseía algunas pantallas y paneles que arrojaban estadísticas sobre el estado de la sociedad en todo el mundo. La máquina era conocida cómo el Inquisidor y la sala era llamada: sala de gobierno. 
+En una sala insonorizada y completamente oscura se encontraban dos entidades de naturaleza diametralmente opuesta, una máquina perfecta y una mujer imperfecta. El lugar poseía algunas pantallas y paneles que arrojaban estadísticas sobre el estado de la sociedad en todo el mundo. La máquina era conocida cómo el Inquisidor y la sala era llamada: sala de gobierno. 
 
 -Inquisidor, ¿qué deberíamos hacer con todas estas mujeres que han enloquecido luego de asesinar o abandonar a sus esposos androides? - La presidenta del mundo, Martina Russo, sonaba aterrada de hacerle preguntas a esta poderosa entidad artificial.
 

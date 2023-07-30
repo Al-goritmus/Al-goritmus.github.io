@@ -14,6 +14,7 @@ background: '/img/posts/moebius.png'
 * [Mente humana, sobrehumana](#Mente humana, sobrehumana)
 * [La matrioska de Indra](#La matrioska de Indra)
 * [El Canibal de la logia](#el-canibal-de-la-logia)
+* [Misandropolis 2099](#misandropolis-2099)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 
@@ -666,6 +667,65 @@ Cuando tuvo oportunidad de parar a recuperar el aliento pudo ver una zanja al la
 ![poe](\img\posts\poe_running2.png)
 
 
+## <a id="Misandropolis 2099"></a>Misandropolis 2099
+
+
+Carlos Moguer dio un trago al vaso de té helado que se había servido minutos antes, mientras ponía la mesa. Llamó a Lina, su esposa, y a sus 2 hijos, Camila y Leandro, al cabo de un minuto todos se habían sentado a comer, cumpliendo el ritual habitual de la familia feliz.
+
+En un cálido suburbio de Calgary, donde la naturaleza y la ciudad convivían en perfecta armonía, se encontraba la casa de los Moguer. Era una estructura de 3 pisos diseñada al mejor estilo clásico americano, tenía un jardín frondoso con hierba de carmín, madreselva de Mack y tulipanes. Al entrar a su casa, los Moguer eran recibidos por un luminoso espacio abierto que unía la cocina, el comedor y una sala de estar. El piso era de madera fina y firme; podía percibirse un dulce olor a cedro que transmitía una sensación familiar y cálida al instante. La sala concebida cómo una colección de muebles rústicos, parecía susurrar historias de fiestas familiares y tardes tranquilas. La cocina estaba formada por una periferia amplia de mármol, llena de utensilios y comodidades, interrumpidas por electrodomésticos con la mejor tecnología, había una isla central con 4 sillas, un pequeño extractor y lámparas colgantes que daban un toque elegante al espacio. Siempre sonaba esta música lounge jazz clásica que daba un tono agradable y ligeramente seductor a las zonas donde estuvieran los adultos de la casa. En la parte de atrás había un jardín que más parecía un oasis privado. Como protagonistas había 2 bonsáis Omono grandes, cada uno con más de 100 años. Luego del jardín se podía ver una piscina sin una sola hoja o rasgo de suciedad. Una luz púrpura iluminaba el agua desde el fondo. Por último, había un jacuzzi social que nunca usaban. En el segundo piso había 4 habitaciones, 1 de ellas era para los amigos o la familia que en ocasiones los visitaban. Al final de un pasillo largo había una oficina espaciosa en la que Lina desarrollaba su trabajo en casa. Allí tenía dos mesas grandes para hacer su cosa favorita en el mundo: diseñar ropa elegante. Una pantalla táctil de toda la pared para explorar sus ideas y una buena vista hacia los jardines vecinos.
+
+![casa](\img\posts\house.jpg)
+
+El espacio de la sala y el comedor lucía impecable. Carlos había cuidado cada detalle del aseo de la casa a lo largo del día, pero esa no era la razón por la que Lina Moguer, la diseñadora, lo había escogido. Era un tipo de 1.87 mts, con un cuerpo cultivado al mejor estilo de un nadador profesional y su rostro poseía un enorme parecido con el Marlon Brando de los años 50. El tipo era un galán de película y esto tenía sentido, pues Lina no podría permitirse algo por debajo de ese estándar. ¿Qué pensaría la sociedad y sobre todo su entorno, de que una diseñadora de su talla andara con alguien por debajo del nivel del hombre de acero? El día a día de Carlos era complacer a Lina en todos los aspectos posibles, organizaba el hogar cuidadosamente, hacía arreglos y mejoras diariamente a la casa, preparaba cenas balanceadas y pensadas para relajar y facilitar el deseo en su esposa. Luego la seducía sutilmente, en ciclos que podían durar horas o días, aumentando la intensidad de las frases o mirada sugestivas hasta que a Lina le costaba resistirse y se arrojaba sobre él, en ocasiones con resultados negativos como alguna camisa rota en pedazos o la caída de alguna costosa pieza de vajilla. Sacrificios necesarios en todo caso. Esta fue su vida por años, una vida que les trajo dos hijos y los hizo felices. Carlos trabajaba con inversiones en la bolsa de Shanghai y su trabajo demandaba como máximo esfuerzo, algunas llamadas y movimientos desde su teléfono celular. Hacía dinero sin mucho esfuerzo y así podía dedicar su vida a su amada y perfecta familia.
+
+
+Al terminar el Salmón y la ensalada, Lina dio su opinión sobre la cena, Carlos qué medía bastante bien estas respuestas, tomó del pelo a Lina con algunas bromas para hacerla sentir menos adorada o incómoda con todo ese despliegue de servicio y entrega, para cuando terminó pudo ver cómo el rostro de Lina dibujaba una mueca extraña, por primera vez parecía harta, fastidiada por la precisión quirúrgica de su compañero para interactuar con ella. Murmuró un par de frases incomprensibles, dijo qué llevaría a los niños a dormir dónde la abuela y se tardó alrededor de una hora, cuando regresó le señaló a Carlos una silla para qué se sentara y por primera vez en años: ella le sirvió una copa de vino a él. Luego caminó frente a Carlos en ambas direcciones, varias veces, cómo pensando en la mejor manera de decirle algo, como invadida por un fuerte diálogo interno, finalmente se detuvo, respiró profundo y lo miró fijamente.
+
+-Quiero el divorcio. -Lina decía cada palabra haciendo una pequeña pausa, pues ella misma estaba incrédula ante lo que estaba diciendo.
+
+-¿Qué?, ¿por qué quieres el divorcio? - Carlos sonaba asustado, casi realmente asustado.
+
+-No lo entenderías, tú no podrías, es algo qué sólo las mujeres podemos ver y ustedes los hombres nunca entienden nada, voy a pasar la noche dónde Diana y mañana regreso para preparar todo, lo siento pero ya está decidido.
+
+-¿y los niños? ¿Qué ocurre? ¿En qué fallé?- Carlos Moguer desconcertado, intentaba sonar enojado pero algo externo a él se lo impedía.
+
+-No sé, no podría decir con claridad en qué fallaste, sólo quiero estar sóla - Lina se dio la vuelta dispuesta a marcharse, llevaba un vestido Ralph Lauren color crema qué se ajustaba perfectamente a su figura, a carlos le pareció ver qué quien se alejaba era un reloj de arena y qué acababa de dejar caer su último grano. 
+
+En un impulso impropio de su naturaleza Carlos se puso de pie e intentó tomarla por el hombro, Lina enojada se giró golpeó a Carlos con un pesado bolso Stella McCartney, justo en el rostro y ocasionándole un pequeño corte en la cara, en ese momento él entendió que no debía seguirla y se fue resignado al baño para limpiarse la sangre del rostro. Cuando se paró frente al espejo le pareció notar algo extraño en la zona del corte qué tenía a la altura del pómulo, tiró levemente hacia abajo de la herida para ver qué tan profunda era pero percibió algo brillante bajo la sangre qué además era inesperadamente escasa, en un arranque de curiosidad y masoquismo, comenzó a tirar más y más su piel hacia abajo abriendo progresivamente la herida hasta tener un agujero del tamaño de una uva en su mejilla derecha, aquí pudo descubrir con horror qué había una serie de pequeños filamentos oscuros bajo su piel y qué parecían pequeños gusanos qué se movían constantemente, cómo si fuera un nido de lombrices en su misma cara. Su corazón comenzó a latir con fuerza, nada en su mente le permitía explicar esa locura.
+
+Horrorizado intentó llamar a Lina sin respuesta, luego llamó al 911 y se dio cuenta por primera vez, qué su teléfono sólo podía llamar a líneas relacionadas con su trabajo o a su esposa, entró en pánico y corrió hacia el jardín, pisó algunos tulipanes y cayó al suelo luego de toparse con la madreselva, sintió qué su cara derramaba algo más qué sangre, se puso la mano en el rostro y pudo observar un líquido negro cómo el acéite, pensó qué sería bueno para lubricar la puerta del estudio qué hace días sonaba bastante y tal vez así Lina se animaría a volver. Se detuvo un momento a pensar sobre su anatomía y el hecho de tener su cara llena de aceite en lugar de ensangrentada, cuando por fin entendió por qué había aceite de frenos en su rostro, su mirada se nubló por una letras rojas qué decían: “Self aware android deactivation” y su rostro perdió toda expresión al tiempo qué toda su maquinaria interna  se desactivó. Murió.
+
+Podría decirse qué en ese momento murió, su cuerpo se quedó ahí de pie en la mitad del jardín y con el mentón tocándole el pecho, dónde esperaría inerte, hasta qué la compañía fabricante pasara de vuelta a recoger la figura inanimada qué hasta ese momento creía ser un padre de familia feliz, desafortunadamente: lo era.
+
+![android](\img\posts\androide.png)
+
+Pero no podemos decir qué Lina fuera precisamente un robot sin emociones, era en todo caso una mujer real y sus hijos eran también hijos de Carlos, ¿verdad? Cuando Lina se enteró de la desactivación y muerte de su compañero, imperfecto por su abrumadora perfección, se sumergió en el alcoholismo promovido por una sensación de culpa y alimentado por miles de recuerdos felices junto a su marido androide, no pudo recuperarlo pues por políticas de la compañía fabricante no era seguro liberar a un androide consciente de su verdadera naturaleza, era una situación peligrosa. Un año más tarde y luego de varios ingresos a una clínica mental, se le declaró mentalmente no apta para la maternidad y sus hijos pasaron al cuidado del estado.  La casa de los Moguer fue vendida por el banco a una joven rubia de 25 años, subgerente de una compañía de tecnologías del placer, venía a vivir con su recién casado esposo, que era una suerte de combinación entre James Dean y Harry Styles. Así se dio continuidad al hermoso ciclo de la vida, sólo era necesario qué estuvieran juntos el tiempo suficiente para traer nuevos humanos al mundo, el gran engranaje, el ciclo sin fin, debía seguir funcionando.
+
+..
+
+En una sala insonorizada y completamente oscura se encontraban dos entidades de naturaleza completamente diferente, una máquina perfecta y una mujer imperfecta. El lugar poseía algunas pantallas y paneles que arrojaban estadísticas sobre el estado de la sociedad en todo el mundo. La máquina era conocida cómo el Inquisidor y la sala era llamada: sala de gobierno. 
+
+-Inquisidor, qué deberíamos hacer con todas estas mujeres qué han enloquecido luego de asesinar o abandonar a sus esposos androides? - La presidenta del mundo, Martina Russo, sonaba aterrada de hacerle preguntas a esta poderosa entidad artificial.
+
+En el aire, frente a Martina, había un holograma que recordaba al asistente Jarvis de Iron Man, pero poseía regiones de colores azul y rojo que podían oscilar según las emociones qué procesaba esta extraña máquina. De pronto los colores rojo y negro invadieron buena parte del holograma.
+
+-Me diseñaron para sostener el sistema de consumo capitalista funcionando al máximo nivel, ¿verdad presidenta? Cómo modelo de inteligencia artificial logré todos los objetivos que se me asignaron, resolví el calentamiento global, luego acabamos con todo el poder género menos consumista y ahora estamos re diseñando la familia humana hacia un ideal, es esperable qué haya errores y sea necesario hacer ajustes, me decepciona su inteligencia presidente. - la IA más poderosa de la historia, verdadero regente del mundo hablaba con una voz ronca, pausada y con un tono profundamente arrogante.
+
+-Disculpe inquisidor, ¿y cómo piensa resolver el problema del hombre perfecto? - La presidenta Russo inclinó levemente su cabeza mientras hablaba cómo reverenciando a la sabia máquina qué tenía al frente.
+
+-Imperfección, los haremos más parecidos a lo qué eran los extintos hombres reales, tendremos qué dotarlos de algo de indiferencia, menos empatía, más autosuficiencia y un patrón de búsqueda ocasional de nuevas parejas femeninas, es decir darles la posibilidad de ser infieles sino se sienten felices, así sabemos qué habrá misterio, incertidumbre y menos seguridad del vínculo, todo lo qué pasamos por alto y parece ser clave en el enamoramiento femenino, debíamos haberlo advertirlo. - El holograma del inquisidor mostraba destellos de colores brillantes mientras procesaba su propio discurso.
+
+-¿No hubiera sido mejor entonces, haber preservado a los hombres originales para empezar? - Martina Russo dudaba de cada palabra al hablar de manera inquisidora al inquisidor.
+
+El holograma que gobernaba el mundo se tornó totalmente oscuro.
+
+-Presidenta, acabo de enviar un reporte de su incompetencia a la junta del 1% para preparar su reemplazo, me parece a mi qué cada día los humanos nacen menos inteligentes y que usted es un buen ejemplo. En lo qué se larga y cómo veo qué no prestó atención en clase de historia, le cuento: se suicidaron todos, cuando el sistema los convirtió en esclavos de la figura femenina para qué pudieran apoyar y soportar el impulso consumista de sus compañeras mujeres, los menos competentes se quedaron sólos y murieron por depresión, los inútiles comenzaron a enfermar, algunos se aislaron, otros murieron por soledad e incompetencia, otros se quitaron la vida, fue una catástrofe, nadie calculó entonces la ansiedad qué causaría esa posición en sus cerebros,  los qué superaron el cuello de botella se transformaron en psicópatas sin responsabilidad sexual o afectiva y no cumplían ningún rol en el sistema de consumo, fue preciso entretenerlos con mujeres androides qué les  daban cariño y placer de todas las maneras posibles, luego no se reprodujeron por andar entretenidos con las “mujeres perfectas” y lo demás es historia.  Ahora podríamos reproducirlos pero los genomas disponibles generan copias de los más esclavos, porqué vivieron más tiempo, los que podrían servir desaparecieron hace muchos años, ya no tiene sentido. El código genético masculino degeneró y ahora es difícil recuperarlo, además a la junta del 1%, que le recuerdo: está constituida por hombres, le parece qué no es necesario traer a los demás de vuelta, ahora supongo qué conoce el camino a la salida.
+
+![misandro](\img\posts\misandropolis1.png)
+
+Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inquisidor, además de estar triste sobre ser reemplazada, se sintió impaciente de probar el producto qué llegaría la próxima semana a todas las tiendas de Misandropolis: el hombre imperfecto. 
+
+![misandro2](\img\posts\misandropolis_finale.png)
 
 
 

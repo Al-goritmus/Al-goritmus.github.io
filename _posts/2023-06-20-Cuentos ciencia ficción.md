@@ -724,7 +724,7 @@ El holograma que gobernaba el mundo se tornó totalmente oscuro.
 
 ![misandro](\img\posts\misandropolis1.png)
 
-Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inquisidor, además de estar triste sobre ser reemplazada, se sintió impaciente de probar el producto qué llegaría la próxima semana a todas las tiendas de Misandropolis: el hombre imperfecto. 
+Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inquisidor, además de estar triste sobre ser reemplazada, se sintió impaciente de probar el producto que llegaría la próxima semana a todas las tiendas de Misandropolis: el hombre imperfecto. 
 
 ![misandro2](\img\posts\misandropolis_finale.png)
 

@@ -17,6 +17,7 @@ background: '/img/posts/moebius.png'
 * [Misandropolis 2099](#misandropolis-2099)
 * [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 
+
 ## <a id="bucle-infinito"></a>Bucle infinito
 
 Bucle infinito.
@@ -730,7 +731,7 @@ Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inqu
 ![misandro2](\img\posts\misandropolis_finale.png)
 
 
-## <a id="Freyja, la diosa de los anarquistas."></a>Freyja, la diosa de los anarquistas.
+## <a id="Freyja, la diosa de los anarquistas."></a>Freyja, la diosa de los anarquistas
 
 ![freyja](\img\posts\frejya.png)
 

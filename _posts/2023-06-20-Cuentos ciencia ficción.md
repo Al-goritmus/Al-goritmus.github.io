@@ -15,7 +15,7 @@ background: '/img/posts/moebius.png'
 * [La matrioska de Indra](#La matrioska de Indra)
 * [El Canibal de la logia](#el-canibal-de-la-logia)
 * [Misandropolis 2099](#misandropolis-2099)
-* [Freyja, la diosa de los anarquistas](#Freyja la diosa de los anarquistas)
+* [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 
 
 ## <a id="bucle-infinito"></a>Bucle infinito

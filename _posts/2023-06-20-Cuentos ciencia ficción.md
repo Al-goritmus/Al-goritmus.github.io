@@ -749,7 +749,10 @@ Para entonces Elías era el mejor hacker del mundo, había permanecido oculto de
 Prendió su computadora y encendió el algoritmo que le permitía navegar por astranet sin ninguna posibilidad de ser ubicado, accedió a la VPN de la resistencia con una facilidad elegante, desencriptó las contraseñas con un algoritmo genético, encendió el teléfono de la habitación de Amanda y comenzó la conversación más importante de su vida.
 
 -Amanda, buenos días. Mi nombre es Elías Fernández, soy la persona que has estado buscando.
--Un placer, un placer escucharte Elías, creo que ya sabes que todos los movimientos de la resistencia fueron predichos – Amanda sonaba abatida, estaba acostada sobre una cama rudimentaria cubriendo sus ojos con el antebrazo derecho, una de sus botas se apoyaba sobre un arrume de libros en los qué podía leerse nombres como Bakunin y Proudhon.
+
+-Un placer, un placer escucharte Elías, creo que ya sabes que todos los movimientos de la resistencia fueron predichos 
+
+– Amanda sonaba abatida, estaba acostada sobre una cama rudimentaria cubriendo sus ojos con el antebrazo derecho, una de sus botas se apoyaba sobre un arrume de libros en los qué podía leerse nombres como Bakunin y Proudhon.
 
 -Si, estoy al tanto de tu fracaso y lo lamento, es obra del arquitecto, no podemos hacer nada a menos que fabriquemos una máquina equivalente, pero diseñada para fabricar eventos impredecibles, estos hijos de puta los tienen totalmente mapeados a ustedes – la voz de Elías era grave y ronca, no como la de un locutor, más bien como la de quien se levanta luego de una noche de tragos y cigarros, como quien vuelve de un viaje astral inducido por una planta sagrada de antaño.
 Amanda se sentó bruscamente y se agarró el cabello tratando de entender las palabras de Elías, en su formación de neurobiología estaba todo conocimiento sobre el cerebro, pero muy poco sobre supercomputadoras impredecibles diseñadas para romper al sistema.

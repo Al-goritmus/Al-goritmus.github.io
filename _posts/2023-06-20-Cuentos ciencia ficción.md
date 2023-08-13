@@ -15,7 +15,7 @@ background: '/img/posts/moebius.png'
 * [La matrioska de Indra](#La matrioska de Indra)
 * [El Canibal de la logia](#el-canibal-de-la-logia)
 * [Misandropolis 2099](#misandropolis-2099)
-* [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
+* [Freyja, la diosa de los anarquistas](#Freyja la diosa de los anarquistas)
 
 
 ## <a id="bucle-infinito"></a>Bucle infinito
@@ -731,11 +731,13 @@ Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inqu
 ![misandro2](\img\posts\misandropolis_finale.png)
 
 
-## <a id="Freyja, la diosa de los anarquistas"></a>Freyja, la diosa de los anarquistas
+## <a id="Freyja, la diosa de los anarquistas"></a>Freyja la diosa de los anarquistas
+
 
 ![freyja](\img\posts\frejya.png)
 
 No está en las estrellas mantener nuestro destino sino en nosotros mismos. (William Shakespeare)
+
 Elías recordaba a Shakespeare mientras se debatía con un enigma intratable, insondable: sus propias emociones. Nunca las había comprendido, ni había logrado descifrarlas. Desesperado, había probado una dosis elevada de peyote en un intento por descifrar su mente. Se unió a la resistencia porque no veía ninguna opción más digna. El gobierno central del planeta había conseguido anticipar todos los movimientos de sus ciudadanos. Poco a poco, se instauró un régimen de consumo perfectamente orquestado, donde los ciudadanos eran ahora más que nunca simples cifras en una pantalla, datos en una matriz interminable. La humanidad se había digitalizado por completo en 2050, quedando cada movimiento bancario, compras y hasta las relaciones sentimentales y rupturas predichas por una supercomputadora cuántica. El mundo dejó de ser una aventura, la capacidad descifrar polinomios de alto grado arruinó cualquier ilusión de libertad, el ser humano era una máquina predecible, un autómata, y no podríamos decir ahora que alguna vez fue diferente, podemos asegurar que la magia consistía en no saberlo. La ilusión del libre albedrío siempre fue precisamente eso: una ilusión, pero ese mito fantasmagórico de la libertad era todo lo que siempre nos hizo humanos.
 
 ![el_arquitecto](\img\posts\el_arquitecto.png)

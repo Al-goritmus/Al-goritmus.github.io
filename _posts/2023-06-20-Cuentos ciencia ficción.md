@@ -796,6 +796,7 @@ Amanda miró con las cejas arqueadas a Elías dándole una clara indicación de 
 El holograma era ahora una mujer con los ojos vendados encadenada y de rodillas, había un hombre de color verde brillante tratando de liberarla, desesperado, el tipo luchaba por abrir un candado qué sostenía las cadenas de la mujer, Sofía lloraba y miraba aterrada el producto de su propia mente. Los padres, Amanda y Elías miraban con asombro esta imagen.
 
 -Sofía, ¿quién es la mujer que nos estás mostrando? -inquirió Amanda con su habitual tono militar.
+
 -La humanidad que vamos a liberar, no estás prestando atención Amanda. 
 
 -Sofía sonaba reflexiva, mucho más madura ahora que su mente se había integrado con una poderosa computadora.

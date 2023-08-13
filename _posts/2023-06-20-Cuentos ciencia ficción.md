@@ -731,7 +731,7 @@ Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inqu
 ![misandro2](\img\posts\misandropolis_finale.png)
 
 
-## <a id="Freyja, la diosa de los anarquistas"></a>Freyja la diosa de los anarquistas
+## <a id="Freyja, la diosa de los anarquistas"></a>Freyja, la diosa de los anarquistas
 
 
 ![freyja](\img\posts\frejya.png)

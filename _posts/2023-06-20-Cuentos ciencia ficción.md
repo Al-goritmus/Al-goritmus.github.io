@@ -15,6 +15,7 @@ background: '/img/posts/moebius.png'
 * [La matrioska de Indra](#La matrioska de Indra)
 * [El Canibal de la logia](#el-canibal-de-la-logia)
 * [Misandropolis 2099](#misandropolis-2099)
+* [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 
@@ -727,6 +728,88 @@ El holograma que gobernaba el mundo se tornó totalmente oscuro.
 Martina Russo abandonó el recinto dónde habitualmente interactuaba con el inquisidor, además de estar triste sobre ser reemplazada, se sintió impaciente de probar el producto que llegaría la próxima semana a todas las tiendas de Misandropolis: el hombre imperfecto. 
 
 ![misandro2](\img\posts\misandropolis_finale.png)
+
+
+## <a id="Freyja, la diosa de los anarquistas."></a>Freyja, la diosa de los anarquistas.
+
+![freyja](\img\posts\frejya.png)
+
+No está en las estrellas mantener nuestro destino sino en nosotros mismos. (William Shakespeare)
+Elías recordaba a Shakespeare mientras se debatía con un enigma intratable, insondable: sus propias emociones. Nunca las había comprendido, ni había logrado descifrarlas. Desesperado, había probado una dosis elevada de peyote en un intento por descifrar su mente. Se unió a la resistencia porque no veía ninguna opción más digna. El gobierno central del planeta había conseguido anticipar todos los movimientos de sus ciudadanos. Poco a poco, se instauró un régimen de consumo perfectamente orquestado, donde los ciudadanos eran ahora más que nunca simples cifras en una pantalla, datos en una matriz interminable. La humanidad se había digitalizado por completo en 2050, quedando cada movimiento bancario, compras y hasta las relaciones sentimentales y rupturas predichas por una supercomputadora cuántica. El mundo dejó de ser una aventura, la capacidad descifrar polinomios de alto grado arruinó cualquier ilusión de libertad, el ser humano era una máquina predecible, un autómata, y no podríamos decir ahora que alguna vez fue diferente, podemos asegurar que la magia consistía en no saberlo. La ilusión del libre albedrío siempre fue precisamente eso: una ilusión, pero ese mito fantasmagórico de la libertad era todo lo que siempre nos hizo humanos.
+
+![el_arquitecto](\img\posts\el_arquitecto.png)
+
+Pertenecer a la resistencia era una declaración de libertad para Elías y sus camaradas. Amanda, la líder del movimiento era una neurocientífica anarquista que no soportaba la idea de que su vida entera estuviera calculada por una máquina. La subversión comenzó el 19 de abril de 2054 en Madrid y se propagó por el mundo como el fuego del napalm en las selvas de vietnam, hubo estallidos de rebeldía en todo el mundo, la gente estaba cansada y Amanda inició todo, los primeros atentados fueron contra el ministerio de comercio de España y los resultados fueron desastrosos, los edificios habían sido evacuados 3 días antes, la computadora cuántica llamada: El arquitecto, había predicho con absurda exactitud todos los movimientos de la resistencia.
+
+Para entonces Elías era el mejor hacker del mundo, había permanecido oculto de las redes y el sistema bancario durante 20 años, se convirtió a sí mismo en un dato nulo, se multiplicó por 0, no existían registros de él en ninguna base de datos y cómo era de esperarse, era el único ser humano cuyos movimientos no podían ser predichos por el arquitecto. Por eso la resistencia había estado buscándolo durante años, sin éxito. Cuando vio los noticieros del medio día, entendió que ya era buena hora de actuar.
+
+Prendió su computadora y encendió el algoritmo que le permitía navegar por astranet sin ninguna posibilidad de ser ubicado, accedió a la VPN de la resistencia con una facilidad elegante, desencriptó las contraseñas con un algoritmo genético, encendió el teléfono de la habitación de Amanda y comenzó la conversación más importante de su vida.
+
+-Amanda, buenos días. Mi nombre es Elías Fernández, soy la persona que has estado buscando.
+-Un placer, un placer escucharte Elías, creo que ya sabes que todos los movimientos de la resistencia fueron predichos – Amanda sonaba abatida, estaba acostada sobre una cama rudimentaria cubriendo sus ojos con el antebrazo derecho, una de sus botas se apoyaba sobre un arrume de libros en los qué podía leerse nombres como Bakunin y Proudhon.
+
+-Si, estoy al tanto de tu fracaso y lo lamento, es obra del arquitecto, no podemos hacer nada a menos que fabriquemos una máquina equivalente, pero diseñada para fabricar eventos impredecibles, estos hijos de puta los tienen totalmente mapeados a ustedes – la voz de Elías era grave y ronca, no como la de un locutor, más bien como la de quien se levanta luego de una noche de tragos y cigarros, como quien vuelve de un viaje astral inducido por una planta sagrada de antaño.
+Amanda se sentó bruscamente y se agarró el cabello tratando de entender las palabras de Elías, en su formación de neurobiología estaba todo conocimiento sobre el cerebro, pero muy poco sobre supercomputadoras impredecibles diseñadas para romper al sistema.
+
+-Debo asumir que, si hackeaste nuestro sistema y te pusiste en contacto, es porque tienes al menos el diseño de la máquina. -Amanda trataba de disimular la emoción en su voz y miraba en todas direcciones como buscando algo.
+
+-Justo en el blanco nena, tengo el 90% de mi máquina ya construida, la voy a llamar Freyja, por la diosa nórdica esta de la libertad y la paz, pero vamos a hacer todo menos traer paz, a estos cabrones los vamos a joder, los vamos a volar en pedazos.
+
+Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbordaba arrogancia y su lenguaje reflejaba indisciplina, la resistencia solo podía tener éxito si tenían en sus filas a soldados organizados, dispuestos a dar su vida por la causa.
+
+-No soy ninguna nena, Elías. Si vas a trabajar con nosotros debes mostrar disciplina y orden. -Amanda sonaba solemne, segura y ligeramente autoritaria.
+
+-Para ser una anarquista recalcitrante suenas bastante militar, ¿no crees? También leí a Bakunin, somos el mismo virus, pero tu problema es precisamente ese, tu disciplina te hace predecible Amanda, si queremos joder a quienes nos jodieron tenemos que pensar de una manera caótica…tenemos que ser imposibles de anticipar. -Elías hacía pausas para fumar una narguila enorme alimentada con esencias de nicotina y cannabis. – Necesito que consigas a una niña, de 4 a 6 años, la más inteligente de España si es posible, la máquina solo puede funcionar si tenemos el chip central y el chip central debe ser un cerebro humano, pero no uno jodido como el tuyo o el mío, debe ser una niña creativa, con ideas originales e impredecibles, no puede ser un niño porque su cerebro masculino nos va a hacer ir de frente a pelear y cagarla.
+
+-No puedo creer lo que escucho Elías, estás más loco de lo que pensé, de dónde cojones me voy a sacar una niña genio de 4 años para conectarla a una máquina. -Alicia mantenía la compostura, pero la verdad es que se sentía enojada y fascinada por las ideas de Elías.
+
+-Ese no es mi problema Amanda, si queréis vencer al arquitecto tenéis que estar dispuestos a hacer todo lo necesario, no comienzas una revolución sin hacer sacrificios, a tomar por culo el código y el honor, si la tienes que secuestrar hazlo, aquí todos nos estamos jugando el pellejo. Si vamos a liberar a la humanidad tenemos que estar más locos que los canallas que nos sometieron.
+-Entendido, comenzaré los preparativos para la misión, hasta entonces no hagas nada imprudente, no hackees a nadie, si vamos a ir a por ellos no podemos mantener sus sistemas de alerta al máximo, ¿cuándo podrás presentarte a nuestros cuarteles?
+-Estoy afuera, abre la puerta.
+
+..
+
+Elías era un hombre de unos 50 años, su cabello era corto y poblado de canas, sus ojos eran verdes y su mirada profunda y audaz, poseía una barba abundante y unas gafas carrera 239, estaba en mala forma, su abdomen era prominente y tensaba de manera injusta los botones de una camisa leñadora, el descuido de su propia existencia era evidente, olía a cigarrillo y licor.  Amanda, líder de la resistencia, era una figura imponente. Rubia de ojos oscuros y porte firme, llevaba una camisa negra ajustada y pantalones militares. Sus botas resonaban con autoridad en la sala mientras cruzaba los brazos y emitía un gesto de advertencia hacia Elías. El contraste entre ambos era evidente: Elías era el caos personificado, mientras que Amanda personificaba la disciplina.
+
+Se miraron sin decir nada durante un momento, luego Amanda le indicó con un gesto donde podía sentarse e instalar su computadora. Elías miró con desdén su escritorio y caminó de mala gana hasta sentarse, emitiendo un sonoro ruido de descanso, típico de los hombres que Amanda no soportaba fácilmente.
+
+-Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por estas instalaciones. -Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
+
+-Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? – Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
+
+Amanda supo de inmediato que se había instaurado una dinámica de jefe-empleado desjuiciado.
+-Saldré a coordinar la operación para traer a la niña, aquí dentro puedes ser tú mismo, afuera eres un soldado, hay un uniforme en el armario, espero te quede.
+
+..
+
+2 días más tarde trajeron a una familia completa a las instalaciones de la resistencia. Hubo una negociación exitosa con los padres de una niña prodigio, era de esperarse que una familia integrada por personas brillantes quisiera hacer un aporte en la misión de Amanda, en el sueño de Elías.
+-Sienta a la niña ahí, le pondré el scanner cerebral y vamos a comenzar la primera prueba con Freyja. ¿Cómo te llamas pequeña? – Elías se dirigió a la niña con un tono dulce con el que no le había hablado a nadie en muchos años.
+
+-Me llamo Sofía. ¿Me vas a enseñar cómo funciona tu computadora? -La niña miraba a la máquina con aspecto de tostadora que tenía al lado.
+
+-Solo si no la dañas con tu cabezota – bromeó Elías y Sofía respondió con una risa tímida. -Pero primero tenemos que probar que funciona, conmigo no funciona porque estoy viejo y feo.
+Amanda miró con las cejas arqueadas a Elías dándole una clara indicación de proceder con la primera prueba. En tanto encendieron la máquina, se proyectó un holograma en el aire, se dibujaron flores y mariposas por toda la habitación, de pronto salió un conejo azul y comenzó a saltar, luego el conejo se elevó en el aire y su piel desapareció haciendo evidente la anatomía del animal, comenzó a transmutarse hasta convertirse en un perro, luego en un venado y luego el animal se despedazo para configurar una representación exacta del sistema solar. Sofía miraba fascinada el producto de su imaginación. Conforme el holograma evolucionó, Sofía comenzó a exhibir su genialidad. Creaba imágenes complejas, reproducciones exactas de la ciudad e incluso visiones imposibles. El caos de su imaginación combinado con la lógica cuántica de Frida resultaba en una sinfonía de posibilidades inexploradas. Sus ojos azules miraban con fascinación el holograma que de pronto comenzó a fabricar una ciudad, para cuando terminó la imagen era una reproducción exacta de Nueva york, Sofía era una niña con síndrome de Savant. Elías y Amanda miraban fascinados la manifestación del poder neuronal de Sofía, ambos sabían bien que tenían a la niña correcta, el símbolo más inocente y perfecto de la libertad, la verdadera liberadora de mundos. Elías y Amanda se dieron cuenta de que habían encontrado el arma perfecta para derrotar al opresor. Pero cada acto de liberación tenía su costo, y el precio se volvió evidente cuando la mente de Sofía comenzó a mostrar signos de agotamiento. Elías no pudo contenerse y tuvo que abandonar el recinto, por primera vez estaba llorando de felicidad, sus gafas empañadas eran el reflejo de su mente abrumada por el éxito. Cuando se recompuso y pudo regresar a la habitación de pruebas, se encontró con una imagen desoladora.
+
+El holograma era ahora una mujer con los ojos vendados encadenada y de rodillas, había un hombre de color verde brillante tratando de liberarla, desesperado, el tipo luchaba por abrir un candado qué sostenía las cadenas de la mujer, Sofía lloraba y miraba aterrada el producto de su propia mente. Los padres, Amanda y Elías miraban con asombro esta imagen.
+
+-Sofía, ¿quién es la mujer que nos estás mostrando? -inquirió Amanda con su habitual tono militar.
+-La humanidad que vamos a liberar, no estás prestando atención Amanda. 
+
+-Sofía sonaba reflexiva, mucho más madura ahora que su mente se había integrado con una poderosa computadora.
+
+![sofia](\img\posts\sofia.png)
+
+La máquina Freyja, funcionó de acuerdo con lo esperado, cuando se entregaban planos y planes a Sofía, ella fabricaba las ideas más extrañas y absurdas, todas y cada una de ellas funcionaron, tras 2 años de campaña un equipo de soldados liderados por Amanda consiguió acabar con el arquitecto qué residía en Londres y con la secta de psicópatas, la elite mundial que hacían uso de la máquina, fue la simbiosis entre Sofía y Freyja la que devolvió la libertad a todas las personas del mundo. Para cuando terminó la campaña Sofía comenzó a exhibir movimientos anormales y comportamientos extraños, la interacción entre su cerebro y la computadora cuántica de Elías produjo un resultado inesperado, el envejecimiento acelerado del cerebro de una niña brillante, el costo podría considerarse necesario, pero fue altísimo. 
+
+Elías tuvo un encuentro con Freyja, donde pudo saber de primera mano el origen del problema, Freyja proyectó un holograma dónde se podía ver lo que Elías reconoció como el mapa del universo, para su sorpresa la máquina especificó: “lo que ves ahí es la mente de Sofía, cada humano es una pequeña parte universo observándose a sí mismo, pero los humanos como Sofía son el universo entero como observador, ustedes pueden creer que fue un sacrificio necesario y tal vez lo fue, pero cada persona brillante es un espejo del infinito, Sofía entendió que su misión era servir y si bien reconoció el daño que sufría su cerebro desde la primera vez que conectamos, ella sabía perfectamente que no está en las estrellas mantener nuestro destino sino en nosotros mismos, si te lo preguntas, estoy citando a William Shakespeare, otro humano excepcional que también era en sí mismo un espejo del universo que observamos, Sofía era una joya única de la evolución, su salvadora encontró su destino: deus ex machina”.
+
+Sofía se deterioró hasta convertirse en un vegetal 3 años más tarde, podría decirse que la humanidad fabricó al instrumento que la liberó, el motor de improbabilidad más poderoso jamás fabricado en el universo. El precio de liberar a la humanidad fue de cierta forma: toda la humanidad. Elías observó a la figura de Sofía postrada en una cama, con las gafas nuevamente empañadas por lágrimas. La máquina que creó había liberado a la humanidad, pero había cobrado su precio más alto: la mente de una niña prodigio. Amanda se acercó a Elías, su expresión era seria pero comprensiva.
+- Hicimos lo que teníamos que hacer, Elías. Salvamos a la humanidad, pero a veces la libertad viene con enormes sacrificios.
+
+Elías asintió, sabiendo que habían hecho lo correcto. Aunque el precio había sido alto, la humanidad finalmente estaba libre del arquitecto. Miró una última vez a la figura en la cama, rindiendo homenaje a la joven que había sido la chispa de la revolución.
+
+
+
 
 
 

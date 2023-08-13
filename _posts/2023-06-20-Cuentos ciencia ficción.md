@@ -782,9 +782,7 @@ Se miraron sin decir nada durante un momento, luego Amanda le indicó con un ges
 
 -Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
 
--Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? 
-
-– Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
+-Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? – Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
 
 Amanda supo de inmediato que se había instaurado una dinámica de jefe-empleado desjuiciado.
 

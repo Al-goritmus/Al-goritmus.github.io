@@ -772,6 +772,7 @@ Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbord
 -Alicia mantenía la compostura, pero la verdad es que se sentía enojada y fascinada por las ideas de Elías.
 
 -Ese no es mi problema Amanda, si queréis vencer al arquitecto tenéis que estar dispuestos a hacer todo lo necesario, no comienzas una revolución sin hacer sacrificios, a tomar por culo el código y el honor, si la tienes que secuestrar hazlo, aquí todos nos estamos jugando el pellejo. Si vamos a liberar a la humanidad tenemos que estar más locos que los canallas que nos sometieron.
+
 -Entendido, comenzaré los preparativos para la misión, hasta entonces no hagas nada imprudente, no hackees a nadie, si vamos a ir a por ellos no podemos mantener sus sistemas de alerta al máximo, ¿cuándo podrás presentarte a nuestros cuarteles?
 -Estoy afuera, abre la puerta.
 

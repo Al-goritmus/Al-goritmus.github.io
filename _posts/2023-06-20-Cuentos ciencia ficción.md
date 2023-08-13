@@ -764,7 +764,9 @@ Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbord
 
 -Para ser una anarquista recalcitrante suenas bastante militar, ¿no crees? También leí a Bakunin, somos el mismo virus, pero tu problema es precisamente ese, tu disciplina te hace predecible Amanda, si queremos joder a quienes nos jodieron tenemos que pensar de una manera caótica…tenemos que ser imposibles de anticipar. -Elías hacía pausas para fumar una narguila enorme alimentada con esencias de nicotina y cannabis. – Necesito que consigas a una niña, de 4 a 6 años, la más inteligente de España si es posible, la máquina solo puede funcionar si tenemos el chip central y el chip central debe ser un cerebro humano, pero no uno jodido como el tuyo o el mío, debe ser una niña creativa, con ideas originales e impredecibles, no puede ser un niño porque su cerebro masculino nos va a hacer ir de frente a pelear y cagarla.
 
--No puedo creer lo que escucho Elías, estás más loco de lo que pensé, de dónde cojones me voy a sacar una niña genio de 4 años para conectarla a una máquina. -Alicia mantenía la compostura, pero la verdad es que se sentía enojada y fascinada por las ideas de Elías.
+-No puedo creer lo que escucho Elías, estás más loco de lo que pensé, de dónde cojones me voy a sacar una niña genio de 4 años para conectarla a una máquina. 
+
+-Alicia mantenía la compostura, pero la verdad es que se sentía enojada y fascinada por las ideas de Elías.
 
 -Ese no es mi problema Amanda, si queréis vencer al arquitecto tenéis que estar dispuestos a hacer todo lo necesario, no comienzas una revolución sin hacer sacrificios, a tomar por culo el código y el honor, si la tienes que secuestrar hazlo, aquí todos nos estamos jugando el pellejo. Si vamos a liberar a la humanidad tenemos que estar más locos que los canallas que nos sometieron.
 -Entendido, comenzaré los preparativos para la misión, hasta entonces no hagas nada imprudente, no hackees a nadie, si vamos a ir a por ellos no podemos mantener sus sistemas de alerta al máximo, ¿cuándo podrás presentarte a nuestros cuarteles?
@@ -776,17 +778,24 @@ Elías era un hombre de unos 50 años, su cabello era corto y poblado de canas, 
 
 Se miraron sin decir nada durante un momento, luego Amanda le indicó con un gesto donde podía sentarse e instalar su computadora. Elías miró con desdén su escritorio y caminó de mala gana hasta sentarse, emitiendo un sonoro ruido de descanso, típico de los hombres que Amanda no soportaba fácilmente.
 
--Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por estas instalaciones. -Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
+-Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por estas instalaciones. 
 
--Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? – Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
+-Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
+
+-Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? 
+
+– Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
 
 Amanda supo de inmediato que se había instaurado una dinámica de jefe-empleado desjuiciado.
+
 -Saldré a coordinar la operación para traer a la niña, aquí dentro puedes ser tú mismo, afuera eres un soldado, hay un uniforme en el armario, espero te quede.
 
 ..
 
 2 días más tarde trajeron a una familia completa a las instalaciones de la resistencia. Hubo una negociación exitosa con los padres de una niña prodigio, era de esperarse que una familia integrada por personas brillantes quisiera hacer un aporte en la misión de Amanda, en el sueño de Elías.
--Sienta a la niña ahí, le pondré el scanner cerebral y vamos a comenzar la primera prueba con Freyja. ¿Cómo te llamas pequeña? – Elías se dirigió a la niña con un tono dulce con el que no le había hablado a nadie en muchos años.
+-Sienta a la niña ahí, le pondré el scanner cerebral y vamos a comenzar la primera prueba con Freyja. ¿Cómo te llamas pequeña?
+
+– Elías se dirigió a la niña con un tono dulce con el que no le había hablado a nadie en muchos años.
 
 -Me llamo Sofía. ¿Me vas a enseñar cómo funciona tu computadora? -La niña miraba a la máquina con aspecto de tostadora que tenía al lado.
 

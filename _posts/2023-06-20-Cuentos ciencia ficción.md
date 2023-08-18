@@ -776,26 +776,25 @@ Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbord
 
 ..
 
-Elías era un hombre de unos 50 años, su cabello era corto y poblado de canas, sus ojos eran verdes y su mirada profunda y audaz, poseía una barba abundante y unas gafas carrera 239, estaba en mala forma, su abdomen era prominente y tensaba de manera injusta los botones de una camisa leñadora, el descuido de su propia existencia era evidente, olía a cigarrillo y licor.  Amanda, líder de la resistencia, era una figura imponente. Rubia de ojos oscuros y porte firme, llevaba una camisa negra ajustada y pantalones militares. Sus botas resonaban con autoridad en la sala mientras cruzaba los brazos y emitía un gesto de advertencia hacia Elías. El contraste entre ambos era evidente: Elías era el caos personificado, mientras que Amanda personificaba la disciplina.
+Elías era un hombre de unos 50 años, su cabello era corto y poblado de canas, sus ojos eran verdes y su mirada profunda y audaz, poseía una barba abundante y unas gafas carrera 239, estaba en mala forma, su abdomen era prominente y tensaba de manera injusta los botones de una camisa leñadora, el descuido de su propia existencia era evidente, olía a cigarrillo y licor.  Amanda, líder de la resistencia, era una figura imponente. Rubia de ojos oscuros y porte firme, llevaba una camisa de algodón negra ajustada y pantalones militares. Sus botas resonaban con autoridad en la sala mientras caminaba hacia Elías, cuando se encontró frente a él se cruzó de brazos y lo miró con un gesto reprobatorio. El contraste entre ambos era evidente: Elías era el caos hecho hombre, mientras que Amanda personificaba la disciplina. Caminaron juntos por un largo pasillo de los cuarteles generales de la resistencia.
 
-Se miraron sin decir nada durante un momento, luego Amanda le indicó con un gesto donde podía sentarse e instalar su computadora. Elías miró con desdén su escritorio y caminó de mala gana hasta sentarse, emitiendo un sonoro ruido de descanso, típico de los hombres que Amanda no soportaba fácilmente.
+Al ingresar a un cuarto espacioso se encontraron con 4 paredes grises iluminadas por lámparas típicas de los bunkeres de la segunda guerra mundial. Se miraron sin decir nada durante un momento, luego Amanda le indicó con un gesto donde podía sentarse e instalar su computadora. Elías miró con desdén su escritorio y caminó de mala gana hasta sentarse, emitiendo un sonoro ruido de descanso, típico de los hombres que Amanda no soportaba con facilidad.
 
--Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por estas instalaciones. 
+-Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por las instalaciones. 
 
 -Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
 
--Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? – Elías se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
+-Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? –  Se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
 
 Amanda supo de inmediato que se había instaurado una dinámica de jefe-empleado desjuiciado.
 
--Saldré a coordinar la operación para traer a la niña, aquí dentro puedes ser tú mismo, afuera eres un soldado, hay un uniforme en el armario, espero te quede.
+-Saldré a coordinar la operación para traer a la niña, aquí dentro puedes ser tú mismo, afuera eres un soldado. Hay un uniforme en el armario, espero te quede. -Amanda cerró la puerta de golpe y las lamparas antiguass de la habitación titilaron al unísono.
 
 ..
 
 2 días más tarde trajeron a una familia completa a las instalaciones de la resistencia. Hubo una negociación exitosa con los padres de una niña prodigio, era de esperarse que una familia integrada por personas brillantes quisiera hacer un aporte en la misión de Amanda, en el sueño de Elías.
--Sienta a la niña ahí, le pondré el scanner cerebral y vamos a comenzar la primera prueba con Freyja. ¿Cómo te llamas pequeña?
 
-– Elías se dirigió a la niña con un tono dulce con el que no le había hablado a nadie en muchos años.
+-Sienten a la niña ahí -Ordenó Elías a los camaradas que escoltaban a la familia -le pondré el scanner cerebral y vamos a comenzar la primera prueba con Freyja. ¿Cómo te llamas pequeña? - Se dirigió a la niña con un tono dulce con el que no le había hablado a nadie en muchos años.
 
 -Me llamo Sofía. ¿Me vas a enseñar cómo funciona tu computadora? -La niña miraba a la máquina con aspecto de tostadora que tenía al lado.
 

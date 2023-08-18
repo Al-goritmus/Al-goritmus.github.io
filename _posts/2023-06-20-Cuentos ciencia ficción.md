@@ -752,26 +752,26 @@ Ubicado en la parte trasera de la furgoneta, encendió su computadora y activó 
 
 -Enhorabuena, un placer escucharte Elías, creo que ya sabes que todos los movimientos de la resistencia fueron predichos.– Amanda sonaba abatida, estaba acostada sobre una cama rudimentaria cubriendo sus ojos con el antebrazo derecho, una de sus botas se apoyaba sobre un arrume de libros en los qué podía leerse nombres como Bakunin y Proudhon.
 
--Si, estoy al tanto de tu fracaso y lo lamento, es obra del arquitecto, no podemos hacer nada a menos que fabriquemos una máquina equivalente, pero diseñada para fabricar eventos impredecibles, estos hijos de puta los tienen totalmente mapeados a ustedes – la voz de Elías era grave y ronca, no como la de un locutor, más bien como la de quien se levanta luego de una noche de tragos y cigarros, como quien vuelve de un viaje astral inducido por una planta sagrada de antaño.
-Amanda se sentó bruscamente y se agarró el cabello tratando de entender las palabras de Elías, en su formación de neurobiología estaba todo conocimiento sobre el cerebro, pero muy poco sobre supercomputadoras impredecibles diseñadas para romper al sistema.
+-Si, estoy al tanto de tu fracaso y lo lamento, es obra del arquitecto, no podemos hacer nada a menos que fabriquemos una máquina equivalente, una diseñada para fabricar eventos impredecibles, estos hijos de puta los tienen totalmente mapeados a ustedes – la voz de Elías era grave y ronca, no como la de un locutor, más bien como la de quien se levanta luego de una noche de tragos y cigarros, como quien vuelve de un viaje astral inducido por una planta sagrada de antaño y se para en la cima de una colina a narrar su aventura.
 
--Debo asumir que, si hackeaste nuestro sistema y te pusiste en contacto, es porque tienes al menos el diseño de la máquina. -Amanda trataba de disimular la emoción en su voz y miraba en todas direcciones como buscando algo.
+Amanda se sentó bruscamente y se recogió el cabello mientras trataba de entender las palabras de Elías, en su formación de neurobiología estaba todo conocimiento sobre el cerebro, pero muy poco sobre supercomputadoras impredecibles diseñadas para romper al sistema.
 
--Justo en el blanco nena, tengo el 90% de mi máquina ya construida, la voy a llamar Freyja, por la diosa nórdica esta de la libertad y la paz, pero vamos a hacer todo menos traer paz, a estos cabrones los vamos a joder, los vamos a volar en pedazos.
+-Debo asumir que, si hackeaste nuestro sistema y te pusiste en contacto, es porque tienes al menos el diseño de la máquina que propones. -Amanda trataba de disimular la emoción en su voz y miraba en todas direcciones como buscando algo.
 
-Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbordaba arrogancia y su lenguaje reflejaba indisciplina, la resistencia solo podía tener éxito si tenían en sus filas a soldados organizados, dispuestos a dar su vida por la causa.
+-Justo en el blanco nena, tengo el 90% de mi máquina ya construida, la voy a llamar Freyja, por la diosa nórdica esta de la libertad y la magia, vamos a hacer todo menos traer paz, a estos cabrones los vamos a joder, los vamos a volar en pedazos.
 
--No soy ninguna nena, Elías. Si vas a trabajar con nosotros debes mostrar disciplina y orden. -Amanda sonaba solemne, segura y ligeramente autoritaria.
+Amanda se sintió molesta por la forma en la que hablaba Elías, el tipo desbordaba arrogancia y su lenguaje reflejaba indisciplina, según ella, la resistencia solo podía tener éxito si tenían en sus filas a soldados organizados, dispuestos a dar su vida por la causa.
 
--Para ser una anarquista recalcitrante suenas bastante militar, ¿no crees? También leí a Bakunin, somos el mismo virus, pero tu problema es precisamente ese, tu disciplina te hace predecible Amanda, si queremos joder a quienes nos jodieron tenemos que pensar de una manera caótica…tenemos que ser imposibles de anticipar. -Elías hacía pausas para fumar una narguila enorme alimentada con esencias de nicotina y cannabis. – Necesito que consigas a una niña, de 4 a 6 años, la más inteligente de España si es posible, la máquina solo puede funcionar si tenemos el chip central y el chip central debe ser un cerebro humano, pero no uno jodido como el tuyo o el mío, debe ser una niña creativa, con ideas originales e impredecibles, no puede ser un niño porque su cerebro masculino nos va a hacer ir de frente a pelear y cagarla.
+-No soy ninguna nena, Elías. Si vas a trabajar con nosotros tienes que mostrar disciplina y orden. -Amanda sonaba solemne, segura y ligeramente autoritaria.
 
--No puedo creer lo que escucho Elías, estás más loco de lo que pensé, de dónde cojones me voy a sacar una niña genio de 4 años para conectarla a una máquina. 
+-Para ser una anarquista recalcitrante suenas bastante militar, ¿no crees? También leí a Bakunin, somos el mismo virus, pero tu problema es precisamente ese, tu disciplina te hace predecible, si queremos joder a quienes nos jodieron tenemos que pensar de una manera caótica…tenemos que ser imposibles de anticipar. -Elías hacía pausas para fumar una narguila enorme alimentada con esencias de nicotina y cannabis. – Necesito que consigas a una niña, de 4 a 6 años, la más inteligente de España si es posible, la máquina solo puede funcionar si tenemos el chip central y el chip central debe ser un cerebro humano, pero no uno jodido como el tuyo o el mío, debe ser una niña creativa, con ideas originales e impredecibles, no puede ser un niño porque su cerebro masculino nos va a hacer ir de frente a pelear y cagarla.
 
--Alicia mantenía la compostura, pero la verdad es que se sentía enojada y fascinada por las ideas de Elías.
+-No puedo creer lo que escucho Elías, estás más loco de lo que pensé cuando comencé a buscarte, de dónde cojones me voy a sacar una niña genio de 4 años para conectarla a una máquina. -Alicia mantenía la compostura, pero la verdad es que se sentía entre enojada y fascinada por las ideas de Elías.
 
--Ese no es mi problema Amanda, si queréis vencer al arquitecto tenéis que estar dispuestos a hacer todo lo necesario, no comienzas una revolución sin hacer sacrificios, a tomar por culo el código y el honor, si la tienes que secuestrar hazlo, aquí todos nos estamos jugando el pellejo. Si vamos a liberar a la humanidad tenemos que estar más locos que los canallas que nos sometieron.
+-Ese no es mi problema Amanda, si queréis vencer al arquitecto tenéis que estar dispuestos a hacer todo lo necesario, no comienzas una revolución sin hacer sacrificios, a tomar por culo el código y el honor, si la tienes que secuestrar hazlo, aquí todos nos estamos jugando el pellejo. Si vamos a liberar a la humanidad del arquitecto, pues tenemos que estar más locos que los canallas que nos sometieron.
 
--Entendido, comenzaré los preparativos para la misión, hasta entonces no hagas nada imprudente, no hackees a nadie, si vamos a ir a por ellos no podemos mantener sus sistemas de alerta al máximo, ¿cuándo podrás presentarte a nuestros cuarteles?
+-No puedo creer lo que voy a decir pero comenzaré los preparativos para la misión, hasta entonces no hagas nada imprudente, no hackees a nadie, si vamos a ir a por ellos no podemos mantener sus sistemas de alerta al máximo, ¿cuándo podrás presentarte a nuestros cuarteles?
+
 -Estoy afuera, abre la puerta.
 
 ..

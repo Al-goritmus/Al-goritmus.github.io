@@ -839,6 +839,30 @@ Diario del fin del mundo (Agnus Dei)
 
 ![diario](\img\posts\dario_fin_mundo.png)
 
+
+<audio controls>
+    <source src="{{ '/assets/song.m4a' | relative_url }}" type="audio/mp4">
+    Your browser does not support the audio element.
+</audio>
+
+<button class="audio-button" onclick="toggleAudio()">
+    Play Sound
+</button>
+<audio id="audio-player" controls>
+    <source src="{{ '/assets/mysong.m4a' | relative_url }}" type="audio/mp4">
+    Your browser does not support the audio element.
+</audio>
+<script>
+    function toggleAudio() {
+        var audio = document.getElementById("audio-player");
+        if (audio.paused) {
+            audio.play();
+        } else {
+            audio.pause();
+        }
+    }
+</script>
+
 Mentiría si dijera que puedo recordar todos los detalles, incluso ahora, divago sobre los puntos concretos de estas memorias, cuando todo comenzó, yo tendría unos 25 años. Me creía el dueño del mundo sin haber logrado nada. Gozaba de la inocencia absoluta de alguien que no había decidido derrocar a sus propios demonios y probablemente tampoco tenía idea de su existencia. Era un agnóstico del mal que habitaba en mi propia mente, y me sorprendió cuando el jefe de tecnología en la compañía militar para la que trabajaba se acercó con la mirada confundida, el ceño fruncido y una sonrisa amarga para decir: "¿Estás preparado? El mundo se va a ir a la mierda".
 
 Mi memoria es un lugar extraño, una contradicción absurda. Puedo evocar con lujo de detalle el camino a cualquier lugar en una gran ciudad, soy capaz de hacerlo aún muchos años después de haberlo recorrido. Puedo encontrar al enemigo luego de ver una sola vez un mapa con coordenadas, volver a escribir este texto punto por punto si lo perdiera. La contradicción surge cuando intento recordar el rostro o la voz de cualquier persona que no haya visto en más de dos semanas. Podría jurar que veo detalles específicos: un lunar cerca de la boca, la nariz puntiaguda o respingada, el brillo de los ojos y su color. Sin embargo, no puedo traer ni un solo rostro al presente. Cuando me alejo de un lugar, debo cargar con la garantía absoluta de olvidarlos a todos, olvidar todo excepto sus palabras y sus ideas. Ya debe ser evidente que hay cosas que puedo retener y otras a las que estoy condenado a perder.

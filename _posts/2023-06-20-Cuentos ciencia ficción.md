@@ -837,7 +837,7 @@ Elías asintió, sabiendo que de alguna forma habían hecho lo correcto. Aunque 
 
 Diario del fin del mundo (Agnus Dei)
 
-![diario](\img\posts\diario_fin_mundo.png)
+![diario](\img\posts\dario_fin_mundo.png)
 
 Mentiría si dijera que puedo recordar todos los detalles, incluso ahora, divago sobre los puntos concretos de estas memorias, cuando todo comenzó, yo tendría unos 25 años. Me creía el dueño del mundo sin haber logrado nada. Gozaba de la inocencia absoluta de alguien que no había decidido derrocar a sus propios demonios y probablemente tampoco tenía idea de su existencia. Era un agnóstico del mal que habitaba en mi propia mente, y me sorprendió cuando el jefe de tecnología en la compañía militar para la que trabajaba se acercó con la mirada confundida, el ceño fruncido y una sonrisa amarga para decir: "¿Estás preparado? El mundo se va a ir a la mierda".
 
@@ -851,7 +851,7 @@ De todas formas sé bien que este texto será leído por algún pobre diablo, al
 
 3 de enero de 2035
 
-![iguana](\img\posts\iguana.png)
+![iguana](\img\posts\Iguana.png)
 
 Hacía un sol abrasador y el viento le tumbaba las pocas hojas que le quedaban a los árboles que rodeaban a una casa de campo antioqueña, parecía bien cuidada, había un grupo de iguanas reposando en una sombra cada vez más escasa, me acerqué sin saber que saldría de allí transformado en alguien diferente. Mentiría si digo que me arrepiento de lo qué hice en ese lugar o de la forma en la que lo hice, fue un proceso tortuoso y no fue rápido, más bien fue una agonía larga y bien ganada. Usted entenderá que la víctima no merecía menos, el monstruo de Copacabana cómo decidí llamarlo días después, tenía 3 hijos y un mal día decidió que el más pequeño de sus hijos debía morir para alimentar al resto de su familia, cuando ingresé a su casa para buscar algo de comer, encontré en el horno lo que pude identificar como los restos humanos de un niño de alrededor de 3 años, descubrir un acto de canibalismo es algo aterrador, pero cuando se trata de un niño tiene un precio diferente. Esperé pacientemente alrededor de 4 horas hasta que vi entrar a la casa a un hombre con 2 niños delgados, evidentemente mal nutridos, el hombre adulto que era padre de los niños, lucía anacrónicamente obeso. Cuando los niños salieron a jugar me las arreglé para atacar y someterlo, le di un fuerte golpe en la cabeza causándole la inconsciencia, lo até a una silla y lo interrogué sobre los huesos del horno, utilicé varias técnicas qué aprendí cuando fui mercenario varios años atrás, para  cuando extraje la verdad ya me hervía la sangre, tan caliente cómo el tejado metálico que pretendía techar la cocina, me encargué de que nunca pudiera quitarle la vida a otro de sus hijos y en efecto lo disfruté.  Después llevé a los niños a una colonia cercana, donde aún se cultivaba alimento y persistía un vestigio civilizado de la humanidad. Allí, enfrentaban el apocalipsis con honor, disciplina y un concepto intacto de la justicia. Del monstruo de Copacabana, solo quedó un triste recuerdo en las mentes de sus propios hijos. Supongo qué de alguna manera eso me marcó, es difícil definir la maldad cuando tratas de sobrevivir en un planeta decadente, esas experiencias me endurecieron y me ayudaron a descubrir los límites de mi propia maldad.
 

@@ -898,11 +898,11 @@ Epílogo: Los eventos fueron registrados y narrados por una réplica artificial 
 
 ## <a id="De filosofos y orgías romanas"></a>De filosofos y orgías romanas
 
-![astronautas](\img\posts\austronautas_romanes.jpg)
+![astronautas](\img\posts\austronautas_romanos.jpg)
 
 El sol daba sus habituales primeras notas matutinas en Córcega, las aves, habitantes milenarios de la isla daban su concierto sin fallar una nota, pero esa mañana fueron interrumpidas por el aura poderoso de la guardia imperial que acabó con el canto del bosque y lo reemplazó por el sonido del cuero contra la arena y el roce metálico de las armaduras legionarias. El emperador fue escoltado en una rápida conquista de la playa y luego escoltado hasta la casa dónde Séneca cumplía el deber del exilio. La legión de la guardia imperial acompañó a Nerón en su camino hasta indicarle el lugar correcto, se paró frente al humilde portón de madera detrás del cual todos sabían, se encontraba el más grande de los estoicos.
 
-![romanos](\img\posts\roman_legionares.jpg)
+![romanos](\img\posts\roman_legionaries.jpg)
 
 -¡Séneca, empaca tus cosas, hoy regresas a Roma! - El tono solemne e impetuoso de Nerón resonó en los pequeño retazos de bosque que rodeaban la morada del maestro exiliado.
 

@@ -17,6 +17,7 @@ background: '/img/posts/moebius.png'
 * [Misandropolis 2099](#misandropolis-2099)
 * [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 * [Diario del fin del mundo](#Diario del fin del mundo)
+* [De filosofos y orgías romanas](#De filosofos y orgías romanas)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 
@@ -493,7 +494,7 @@ La manada se encontraba reunida en torno a una fogata.
 
 -¿Qué tan lejos quieres llegar con esto, Arie? -La voz de Ariana parecía tranquila y dulce, pero tenía un subliminal sabor agresivo y su mirada de aceitunas negras era ligeramente desafiante. 
 
--Tan lejos cómo necesite llegar para ser feliz, aunque espero hacerlo contigo -Negoció Aarón con una voz tenue en la que sabía que ella podía oler el miedo, miedo a una versión no humana de Ariana, la canis lupus alfa.
+-Tan lejos como necesite llegar para ser feliz, aunque espero hacerlo contigo -Negoció Aarón con una voz tenue en la que sabía que ella podía oler el miedo, miedo a una versión no humana de Ariana, la canis lupus alfa.
 
 -Si yo fuera tú mediría mis palabras Aarón, estás frente a tu alfa de Eternal -Dijo Orjan disimulando la risa mientras daba un sorbo a un cuerno lleno de hidromiel.
 
@@ -501,7 +502,7 @@ Luego un acento extraño y lleno de ritmo africano complementó:
 
 -Es raro verte desafiar a Ariana en este mundo, aquí es la más pequeña y dulce del grupo, pero todos sabemos quien es en el fondo gracias a Eternal y me pregunto, si el juego no existiera, la condición de alfa de Ariana sería igual de real pero menos evidente? - Alika parecía divertirse con todo el asunto.- Yo digo qué todos tenemos estos mundos alternos en nuestro interior y el juego de  Aarón sólo nos permite ser  nosotros.
 
--Qué no es un juego carajo!! -gritó Aarón antes de echarse a reír.
+-Que no es un juego carajo!! -gritó Aarón antes de echarse a reír.
 
 -Debe ser pura casualidad qué sea la alfa en Eternal -Replicó Ariana con un poco de voz en su ironía- Por supuesto qué no me propongo controlar a Aarón en el mundo real, sólo no quiero qué se pierda en su propia fantasía, también tenemos vidas aquí…Eternal no es real.
 
@@ -513,23 +514,23 @@ Aarón tenía la sensación de estar hecho de algo diferente, alguien a quien no
 
 Capila, un hombre calvo de unos 50 años, era un amigo de california con raíces mexicanas qué le recordaba a un comediante del siglo XX llamado Cantinflas, había regresado a América luego de pasar 20 años en la India y el Tibet aprendiendo sobre los caminos de filosofía religiosa antigua. Capila parecía tranquilo al escuchar el relato de Aarón, no lucía asombrado y parecía estar escuchando una historia repetida. Cuando por fin terminó el relato del lobo-ingeniero, Capila cerró los ojos y comenzó a hablar cómo quien tiene qué enseñar algo nuevo a un niño:
 
-- Honestamente no me sorprende nada en tu relato, inventaste una realidad alterna para poder conectarte con tu interior y el de otros, algo qué unos años de meditación te podrían haber ayudado a alcanzar, aunque…no te habrías hecho rico en el camino, verdad?. Estás entendiendo la estructura fractal de tu propia alma, me sorprende que la tecnología te haya llevado hasta ese punto pero también es lógico si lo que buscabas era conocerte mejor a ti mismo, viejo amigo. -Capila tenía una voz suave y llena de calma, era cómo ver pequeñas ondas propagarse en un lago tranquilo.
+- Honestamente no me sorprende nada en tu relato, inventaste una realidad alterna para poder conectarte con tu interior y el de otros, algo que unos años de meditación te podrían haber ayudado a alcanzar, aunque…no te habrías hecho rico en el camino, verdad?. Estás entendiendo la estructura fractal de tu propia alma, me sorprende que la tecnología te haya llevado hasta ese punto pero también es lógico si lo que buscabas era conocerte mejor a ti mismo, viejo amigo. -Capila tenía una voz suave y llena de calma, era cómo ver pequeñas ondas propagarse en un lago tranquilo.
 
 -¿Qué quieres decir con estructura fractal del alma?¿ Es posible qué existan otras versiones de mi? ¿o qué mi vida entera es una farsa? - Aarón trataba de no sonar molesto o confundido, estaba un poco de ambas cosas.
 
--Está todo escrito en los textos sagrados de la india y el Tibet, es un saber milenario qué muy pocas personas han explorado antes, lo voy a explicar en palabras qué los dos podamos entender: utilizas una máquina para experimentar con tu mente, tu conciencia y esto te otorgó la capacidad de percibir otras dimensiones de tu propia existencia. -La paciencia de Capila sonaba paternal y se acompañaba de una sonrisa cómplice.- Entra al templo  Aarón, siéntate en posición de loto y deja que esa sensación de doble conciencia te inunde, es tu turno de meditar.
+-Está todo escrito en los textos sagrados de la india y el Tibet, es un saber milenario que muy pocas personas han explorado antes, lo voy a explicar en palabras que los dos podamos entender: utilizas una máquina para experimentar con tu mente, tu conciencia y esto te otorgó la capacidad de percibir otras dimensiones de tu propia existencia. -La paciencia de Capila sonaba paternal y se acompañaba de una sonrisa cómplice.- Entra al templo  Aarón, siéntate en posición de loto y deja que esa sensación de doble conciencia te inunde, es tu turno de meditar.
 
- Aarón no estaba seguro sobre si había oído la palabra meditar o despertar, entró al templo de su amigo, le sorprendió el tamaño del lugar visto desde adentro. Las paredes estaban pintadas de rojo al igual qué una serie de columnas gruesas qué sostenían el techo dónde había símbolos en varios idiomas tallados, en la mitad del templo caían algunos rayos de sol  sobre la zona en la qué se hacía meditación, un olor a incienso y a opio inundó sus fosas nasales, el silencio era ensordecedor y sólo era interrumpido cada minuto por diferentes tonos de voz de los estudiantes de Capila, qué entonaban mantras ancestrales. Experimentó una sensación de calma qué le recordó a los primeros años  de su infancia, cuando veía a su madre preparando limonada en una tardes calurosas, se perdió en sus recuerdos por unos minutos.
+ Aarón no estaba seguro sobre si había oído la palabra meditar o despertar, entró al templo de su amigo, le sorprendió el tamaño del lugar visto desde adentro. Las paredes estaban pintadas de rojo al igual que una serie de columnas gruesas qué sostenían el techo dónde había símbolos en varios idiomas tallados, en la mitad del templo caían algunos rayos de sol  sobre la zona en la qué se hacía meditación, un olor a incienso y a opio inundó sus fosas nasales, el silencio era ensordecedor y sólo era interrumpido cada minuto por diferentes tonos de voz de los estudiantes de Capila, que entonaban mantras ancestrales. Experimentó una sensación de calma que le recordó a los primeros años  de su infancia, cuando veía a su madre preparando limonada en una tardes calurosas, se perdió en sus recuerdos por unos minutos.
 
 -Flor de Loto, ahora. -Lo interrumpió Capila, mientras encendía 2 calderas a los lados de la alfombra dónde  Aarón se dispondría a meditar.
 
-Aarón asumió la que siempre le pareció una posición incómoda y ridícula. Se intentó aferrar por horas a la idea de meditar, al principio le costaba mantenerse enfocado pero con el envejecer de la tarde fue más sencillo, al cabo de un rato comenzó a escuchar sonidos similares a campanas pero no podía decir con certeza de dónde venían, lentamente se arrojó a perder la conciencia de su cuerpo y le pareció ver pequeños destellos de luz dorada a pesar de tener los ojos cerrados, fue consciente de qué su cuerpo comenzó a temblar, mintos más tarde tenía qué abrir los ojos pues sentía qué estaba a punto de perder la consciencia, “¿Estoy a punto de morir?”-se preguntó gritando en su propio pensamiento-. Pasó alrededor de un minuto temblando de manera constante y finalmente, luego de sentir un dolor desgarrador en cada átomo de su humanidad, su cuerpo desapareció, abrió los ojos y se encontró de frente con un paisaje bellísimo.
+Aarón asumió la que siempre le pareció una posición incómoda y ridícula. Se intentó aferrar por horas a la idea de meditar, al principio le costaba mantenerse enfocado pero con el envejecer de la tarde fue más sencillo, al cabo de un rato comenzó a escuchar sonidos similares a campanas pero no podía decir con certeza de dónde venían, lentamente se arrojó a perder la conciencia de su cuerpo y le pareció ver pequeños destellos de luz dorada a pesar de tener los ojos cerrados, fue consciente de que su cuerpo comenzó a temblar, mintos más tarde tenía que abrir los ojos pues sentía que estaba a punto de perder la consciencia, “¿Estoy a punto de morir?”-se preguntó gritando en su propio pensamiento-. Pasó alrededor de un minuto temblando de manera constante y finalmente, luego de sentir un dolor desgarrador en cada átomo de su humanidad, su cuerpo desapareció, abrió los ojos y se encontró de frente con un paisaje bellísimo.
 
 						. .
 
 Le costaba mantener abiertos los ojos, fue cómo mirar directamente al sol justo luego de abandonar la sombra de un enorme árbol. Había un domo a través del cual se podían apreciar innumerables estrellas, lo más llamativo era una especie de nube púrpura qué se apreciaba en todas las direcciones, se levantó de una cápsula, se envolvió en una manta qué tenía al lado y lo entendió lentamente: estaban atravesando una nebulosa. De golpe recordó su nombre real: Luciano, “¿Quién era Luciano?” -se preguntó-. “Luciano es un viajero espacial descendiente de humanos que vivieron en un país llamado Italia” -se respondió- y  bruscamente se llenó de recuerdos qué explicaban todo: La destrucción del planeta tierra en el 2087 por un asteroide que fue imposible detener, la negativa de los humanos habitantes de marte a recibir a los terrícolas por miedo a la escasez de recursos, la medida desesperada de navegar el espacio en naves-colonia para buscar un planeta similar a la tierra. Crearon la simulación del planeta de  Aarón para evitar la locura espacial de los 50 millones de humanos que aún deambulaban el espacio, la sorpresa más desagradable fue recordar qué otros humanos habían encontrado planetas para colonizar, pero se negaban a recibir a los qué aún seguían perdidos en el espacio, a decir verdad era de esperarse, no había nada nuevo bajo el sol, tampoco bajo mil soles.
 
-Luciano sintió una enorme tristeza de saberse perdido en el espacio en busca de un nuevo hogar, al menos tenía a sus hijos con él y su esposa Fiorella, dejó escapar un par de lágrimas cuando se acercó a las cápsulas en las qué flotaban sus cuerpos en animación suspendida y lamentó la mala fortuna de no haber conocido a sus hijos en la simulación dónde nunca fue padre, al detenerse a observar a Fiorella reconoció lentamente sus rasgos y fue consciente de qué era la misma persona qué Ariana, fue un alivio saber qué Ariana no era un personaje ficticio creado para alegrarle la vida mientras viajaba por el espacio sin rumbo y qué también era su compañera en el 2030. Recordó las historias de los refugiados sirios e iraquíes que naufragaron en el mediterrano de un planeta qué ya no existía  y se sintió identificado. 
+Luciano sintió una enorme tristeza de saberse perdido en el espacio en busca de un nuevo hogar, al menos tenía a sus hijos con él y su esposa Fiorella, dejó escapar un par de lágrimas cuando se acercó a las cápsulas en las qué flotaban sus cuerpos en animación suspendida y lamentó la mala fortuna de no haber conocido a sus hijos en la simulación dónde nunca fue padre, al detenerse a observar a Fiorella reconoció lentamente sus rasgos y fue consciente de qué era la misma persona qué Ariana, fue un alivio saber qué Ariana no era un personaje ficticio creado para alegrarle la vida mientras viajaba por el espacio sin rumbo y que también era su compañera en el 2030. Recordó las historias de los refugiados sirios e iraquíes que naufragaron en el mediterrano de un planeta qué ya no existía  y se sintió identificado. 
 
 ![Nebulosa](\img\posts\nebulosa1.png)
 
@@ -543,19 +544,19 @@ La ironía de ser precisamente él quien imploraba eso bien pudo haber hecho re�
 
 -Es probable que la realidad se componga de simulaciones con una simetría fractal, una dentro de otra, cómo si se tratara de una muñeca Matrioska rusa.-Lobsang sonaba más serio en su versión de náufrago espacial- Sinceramente dudo que al final esté Indra con su collar fabricando el universo, creo que estamos en el pensamiento de un ser qué podríamos considerar superior, pero qué podría ser un águila, un niño o un escritor de cuentos de ciencia ficción, es imposible determinarlo en este momento. -Lobsang miraba los detalles de la nebulosa fascinado, mientras lanzaba esas terribles hipótesis.
 
--Creo qué no me gusta esta realidad Lobsang y tampoco me gustaba la tierra dónde creí crecer, ni el año 2030, ni el puto 2087, no tengo la responsabilidad de vivir una vida qué no deseo, ni de seguir siendo un ser humano, sabes…¿sabes qué? creo qué volveré a ser un lobo y me quedaré allí junto a Ariana, Alika y Orjan -Luciano sonaba Resignado-  en Eternal todo es más sencillo, ser humano es agotador y agobiante, estoy cansado y me siento viejo y ahora resulta qué vivimos a la deriva en una nave espacial? Mierda, por eso escogí en primer lugar ser un animal, tal vez huía sin saberlo de confrontar esta realidad, temía despertar de mi vida humana normal y ser un mendigo espacial, no es qué esté fea la nebulosa pero me gustan más las auroras en la tierra y me gusta sentir la nieve mientras deambulo por montañas interminables, las cosas son más sencillas cuando tratas de no morir de hambre, pero no puedes hablar mierda sobre ello todo el día, te dedicas a cazar y ya está. 
+-Creo qué no me gusta esta realidad Lobsang y tampoco me gustaba la tierra dónde creí crecer, ni el año 2030, ni el puto 2087, no tengo la responsabilidad de vivir una vida que no deseo, ni de seguir siendo un ser humano, sabes…¿sabes qué? creo que volveré a ser un lobo y me quedaré allí junto a Ariana, Alika y Orjan -Luciano sonaba Resignado-  en Eternal todo es más sencillo, ser humano es agotador y agobiante, estoy cansado y me siento viejo y ahora resulta que vivimos a la deriva en una nave espacial? Mierda, por eso escogí en primer lugar ser un animal, tal vez huía sin saberlo de confrontar esta realidad, temía despertar de mi vida humana normal y ser un mendigo espacial, no es qué esté fea la nebulosa pero me gustan más las auroras en la tierra y me gusta sentir la nieve mientras deambulo por montañas interminables, las cosas son más sencillas cuando tratas de no morir de hambre, pero no puedes hablar mierda sobre ello todo el día, te dedicas a cazar y ya está. 
 
--Deberías preguntarte si los animales de la tierra en la qué creciste o creíste crecer, no serán seres de otras dimensiones qué de alguna manera escapan a sus mentes atribuladas- Dijo Lobsang mientras miraba en otra dirección y con una sonrisa en la voz. - Los perros y los gatos que muchas personas creen cuidar, son cuidadores que viajan de una dimensión a otra buscando compartir con conciencias inferiores, por eso se la pasan el día entero haciendo nada, considerándolo unas vacaciones con todo pago y comida gratis. 
+-Deberías preguntarte si los animales de la tierra en la qué creciste o creíste crecer, no serán seres de otras dimensiones que de alguna manera escapan a sus mentes atribuladas- Dijo Lobsang mientras miraba en otra dirección y con una sonrisa en la voz. - Los perros y los gatos que muchas personas creen cuidar, son cuidadores que viajan de una dimensión a otra buscando compartir con conciencias inferiores, por eso se la pasan el día entero haciendo nada, considerándolo unas vacaciones con todo pago y comida gratis. 
 
 Lobsang sonaba divertido al mejor estilo de Capila, cómo cuando un mago revela su truco a un niño.
 
--Si alguna vez encontramos un planeta qué valga la pena, asegúrate de despertarme de mi doble sueño fractal o lo qué sea que sea mi vida de lobo, de lo contrario prefiero seguir soñando. -Respondió Luciano resignado antes de abandonar su ‘verdadera’ realidad. Se sumergió en la cápsula qué contenía a su cuerpo y activó el modo de animación suspendida con un fuerte golpe a la consola de la cápsula.
+-Si alguna vez encontramos un planeta qué valga la pena, asegúrate de despertarme de mi doble sueño fractal o lo que sea que sea mi vida de lobo, de lo contrario prefiero seguir soñando. -Respondió Luciano resignado antes de abandonar su ‘verdadera’ realidad. Se sumergió en la cápsula qué contenía a su cuerpo y activó el modo de animación suspendida con un fuerte golpe a la consola de la cápsula.
 
 -Puedes escapar cuanto quieras, pero tu mente seguirá buscando escapar de la matrioska rusa mi querido amigo, Buen viaje y nos veremos pronto.-Se despidió Lobsang mientras un líquido frío sumergía a Luciano.
 
 ![Nebulosa2](\img\posts\nebulosa2.png)
 
-De vuelta en el mundo que antes creía real,  Aarón contó todo a Ariana y a sus amigos, qué aunque parecían incrédulos, decidieron, acompañar a  Aarón en la inmersión completa y sostenida, para  Aarón esto fue una demostración clara de qué creían en su relato, aunque se negaran a admitirlo, estaban muertos del susto y probablemente querrían ganar tiempo ya qué en cada simulación la vida pasaba más lento, ahora todos sospechaban qué eran refugiados espaciales, un completo mal viaje. 
+De vuelta en el mundo que antes creía real,  Aarón contó todo a Ariana y a sus amigos, que aunque parecían incrédulos, decidieron, acompañar a  Aarón en la inmersión completa y sostenida, para  Aarón esto fue una demostración clara de qué creían en su relato, aunque se negaran a admitirlo, estaban muertos del susto y probablemente querrían ganar tiempo ya qué en cada simulación la vida pasaba más lento, ahora todos sospechaban qué eran refugiados espaciales, un completo mal viaje. 
 
 -¿Estás seguro Arie? -Preguntó Ariana antes de activar la inmersión completa- Esta podría ser la última vez qué me veas en esta forma.
 
@@ -893,6 +894,121 @@ Las últimas palabras que escuché del diácono fueron: ”Qui nos a tanta morte
 Epílogo: Los eventos fueron registrados y narrados por una réplica artificial de la conciencia del mercenario Diego Martínez. Sin embargo, el implante cerebral dejó de funcionar tras su decapitación, marcando su momento de fallecimiento a las 6:36 pm del 21 de mayo de 2036, habiendo cumplido 36 años de vida. Esta composición se basa en la personalidad única de Diego; su estilo narrativo refleja su forma de pensar y experimentar la vida. Cada palabra leída proviene de una versión artificial de alguien que ya no existe, un sobreviviente homicida en un mundo postapocalíptico.
 
 ![heaven](\img\posts\heaven.png)
+
+
+## <a id="De filosofos y orgías romanas"></a>De filosofos y orgías romanas
+
+![astronautas](\img\posts\astronautas_romanos.jpg)
+
+El sol daba sus habituales primeras notas matutinas en Córcega, las aves, habitantes milenarios de la isla daban su concierto sin fallar una nota, pero esa mañana fueron interrumpidas por el aura poderoso de la guardia imperial que acabó con el canto del bosque y lo reemplazó por el sonido del cuero contra la arena y el roce metálico de las armaduras legionarias. El emperador fue escoltado en una rápida conquista de la playa y luego escoltado hasta la casa dónde Séneca cumplía el deber del exilio. La legión de la guardia imperial acompañó a Nerón en su camino hasta indicarle el lugar correcto, se paró frente al humilde portón de madera detrás del cual todos sabían, se encontraba el más grande de los estoicos.
+
+![romanos](\img\posts\roman_legionaries.jpg)
+
+-¡Séneca, empaca tus cosas, hoy regresas a Roma! - El tono solemne e impetuoso de Nerón resonó en los pequeño retazos de bosque que rodeaban la morada del maestro exiliado.
+
+-Agradezco la oferta, emperador Nerón, pero aquí llevo una vida lo más de tranquila, también vivo en compañía de mi buena vieja amiga, la soledad. No estoy vivo para hacer lo que ya se ha hecho - Séneca habló sin abrir la puerta, pronunciaba cada palabra cómo reflexionando en cada sonido y significado, su sabiduría opacó por un momento la luz del sol helénico y la gloria del emperador.
+
+-No es una oferta maestro, lamento decirlo pero es una orden -Nerón hacía uso de su capacidad única de sonar amenazante sin cambiar la entonación o el volumen de su voz, la usaba con una destreza fascinante - Necesitamos su consejo en Roma, es un llamado no del emperador sino de Roma, el equilibrio del imperio depende de su presencia y consejo, ¿sabe cuántas vidas romanas podrían estar en juego?.
+
+-No sé si más de las que has tomado en nombre del imperio, traté sin éxito de enseñarte que no podemos elegir nuestras tendencias pero sí podemos dirigirlas - Replicó el viejo filósofo, Lucio Séneca abrió despacio la puerta y salió caminando con la calma de un viejo sabio, miró a Nerón a los ojos unos segundos y luego se detuvo a apreciar el paisaje, respiró profundo con suficiencia y buscó los pájaros que veía habitualmente volar de un árbol a otro, pero no vio a los trepadores corso ni a los cernícalos pues se habían espantado con el primer grito de Nerón, Séneca respiró hondo y continuó. - Si Roma reclama mi presencia, quedarme sería un capricho infantil. 
+
+Nerón hizo una leve reverencia a su antiguo maestro y se acercó con pasos largos dispuesto a estrechar sus hombros, para los legionarios era una escena extraña ver al hombre más poderoso del mundo tratar con tal grado de respeto a un viejo pretencioso. Caminaron juntos hacia el puerto donde se podía divisar un mar azul claro cristalino contaminado por una decena de barcos trirremes que escoltaban al emperador en las misiones consideradas menos peligrosas, a lo lejos se divisaban 5 quinquerremes dispuestos de manera que podrían alertar de cualquiera amenaza con tiempo suficiente para garantizar la integridad del magnificus augustus líder de Roma.
+
+La imagen se complementó por la presencia de 3 figuras que observaban a Nerón y a Séneca, una de ellas era un robot que flotaba en el aire.
+
+-¿Todo esto realmente fue así? - indagó Willow, una mujer de 18 años que llevaba un traje ajustado de cuerpo completo hasta el cuello, el traje era de una especie de algodón color granito negro absoluto, lo que junto a su belleza natural, la hacia una silueta perfecta. Traía el cabello negro y corto, a los hombros, su piel blanca se exacerbaba con una palidez natural. Se paró junto a Séneca y a Nerón a observarlos con detenimiento.
+
+![willow](\img\posts\willow_4.jpg)
+
+-Justo así fue, querida Willow -replicó con cariño Phoenix, su maestro- lo sabemos porque las sondas que enviamos al agujero negro central de la vía Láctea nos permitieron acceder con precisión a toda la información de la historia de la tierra, desencriptar esta información se considera el mayor avance científico de los habitantes de Saturno y lo que ves es información real traída del pasado en un lugar donde el tiempo no tiene sentido.
+
+-¿Cómo estudiaban antes los humanos? - preguntó Willow con su habitual voz dulce y curiosa, mientras intentaba interactuar con la armadura de Nerón, sin éxito.
+
+-Leían libros, siglos más tarde veían videos en pantallas y escuchaban audios -Phoenix sonaba nostálgico mientras explicaba estas técnicas arcaicas -a veces podían ver documentales o películas dónde algunos actores expertos interpretaban a todas estas personas. 
+
+-Curioso, ahora sólo hacemos eso por diversión ¿y qué tan exactos eran en ese proceso?, ¿Sabemos si acertaron en sus recreaciones de la historia? -Willow se había recostado en un costado del barco y ya no prestaba atención al diálogo entre Nerón y Séneca.
+
+Se encendió una luz verde en el aire y el maestro no humano, un robot flotante con el aspecto de una esfera lisa llamada TesIA, complementó: Hay mucha formas de medir eso, cuando investigaron esto hacia el pasado lo primero que se hizo evidente fue que diversos escritores, traductores y replicadores de textos antiguos fueron añadiendo sabiduría a la mayoría de libros, pero en ocasiones también restaban información valiosa, su subjetividad modificó progresivamente a los autores originales, en general sólo alrededor del 30% a 50% de la información sobrevivía. Lo que los humanos del 2100 heredaron fue una combinación del conocimiento de cientos de personas por cada autor famoso, en este particular caso Séneca ahora sabemos que fue en realidad mucho más grande y sabio de lo que sabían los humanos que lo estudiaron hace 400 años.
+
+En la siguiente lección decidieron visitar la tierra 100 años después de muerto Séneca.
+
+-¿Marco Aurelio, puedo saber por qué insistes en compartir el trono con Vero?. Prato lucía confuso y anciano, era el consejero del emperador hacía más de 3 décadas. -Nombrarlos Augustus a ambos es algo considerado cómo un capricho por gran parte del senado, Roma debe tener un solo emperador.
+
+-Piensas qué lo más importante será la gloria de ser recordado cómo un emperador y no cómo coemperador, eso es lo menos relevante Prato, vivimos un instante y luego viene el eterno olvido, Lucio Vero es mejor militar qué yo, a él le dejaremos manejar la guerra, yo prefiero la economía y la política, también la filosofía. 
+
+-Insistes en traer al presente todas esas obsoletas ideas de Séneca viejo amigo, que te hace pensar que lo que tuvo validez hace más de 100 años, la tendría hoy? - Replicó Patro sintiendo que en sus palabras habría un céntimo de la sabiduría del gran maestro estoico.
+
+-La tiene Patro, la tiene y la tendrá en mil años, lo que nos trató de enseñar Séneca será recordado por todo lo que dure la gloria de Roma y aún después, solo mira hacia el pasado con sus imperios cambiantes que se alzaron y cayeron, y  serás capaz de prever el futuro.-Marco Aurelio olió una copa de vino y dio un pequeño sorbo para degustar, acto seguido la devolvió a su lugar de reposo.
+
+Marco Aurelio se despidió de Patro y se fue camino al recinto del emperador.
+
+![aurelio](\img\posts\marco_aurelio_walking.jpg)
+
+-Marcus Aurelius Antoninus, viejo amigo, cómo siempre es un gusto traerte de la memoria al presente- Lo saludó su viejo amigo y hermano del trono: Vero.
+
+-Querido Vero, el placer es mío, colega emperador. -Dijo Marco Aurelio con un tono divertido que casi nunca usaba.
+
+-Bueno pues entonces vamos a celebrar esta reunión, yo propongo beber una copa a tu honor y la gloria de Roma, emperador augustus. -Replicó Lucio Vero conteniendo la risa.- Ya llevo mucho tiempo sobrio, los problemas de Hispania me dejaron un dolor en la Galia.
+
+Marco Aurelio se acomodó la capa de emperador y con su calma habitual recitó una de sus máximas -Recuerda, ningún placer es un bien si su ausencia te cuesta la tranquilidad.-Lucio Vero respondió con una mueca adolescente y dejó la jarra de vino a un lado.
+
+-¿Entonces qué te trae por aquí mi querido hermano? Deberías probar las nuevas prostitutas de la corte, son asiáticas y saben como complacer a los grandes hombres de Roma, incluído al mismísimo Aurelio.
+
+-Vengo a discutir asuntos de Roma, no de los grandiosos hombres Romanos, hay una nueva enfermedad que llegó con un grupo de legionarios que estuvieron luchando en la Galia, el senado la llama “la peste Antonina”, no se por qué y debemos tomar decisiones rápido o esta enfermedad se propagará como fuego griego por nuestras ciudades. -Marco Aurelio se sentó en la postura habitual de la estatua del pensador y se quitó el pesado pectoral metálico que llevaba a todas partes.
+
+-¿Así que enfrentamos otra peste eh?, yo propongo no hacer nada, la economía no puede sufrir otro golpe, los saqueos en las rutas comerciales ya han diezmado lo suficiente a la población.
+
+-Es cierto, pero si lo piensas bien una enfermedad que cueste miles de vidas, tiene el potencial de golpear mucho más la economía de Roma, recuerda que no somos los soberanos intocables de este pueblo, somos sus guardianes, yo propongo que comencemos una política de clausura sistemática a los pueblos donde se tenga noticia de que la peste contaminó a los miasmas de sus habitantes.
+
+-Suena razonable, tienes mi pulgar apuntando al cielo, yo estaré en mi lupanar favorito, sabrás donde encontrarme querido hermano. Siempre nos diferencia esto, tu piensas en el trabajo y en invocar el centenario razonamiento de Séneca, yo pienso en vivir la vida como lo que es, un mar de placeres esperando a ser navegado, cuídate mucho Marcus Aurelius Augustus. -Se despidió Lucio Vero mientras tomaba su jarra de vino e iba al encuentro de su propia esclavitud. - ¿Algún consejo?  - preguntó Lucio divertido al girar su rostro al emperador filósofo.
+
+-Solo no olvides la importancia de ser moderado en la prosperidad y sobrio en la adversidad, porque esto es la sabiduría - Replicó Marco Aurelio en voz alta y mirando el atardecer, tratando de disuadir sin éxito a su amigo y hermano de otra madre: Lucio Vero.
+
+Marco Aurelio se quedó unos minutos en silencio contemplando la despedida del sol, pensó en su responsabilidad con Roma, en la grandeza de Séneca, trató sin éxito de escuchar al maestro que nunca conoció y por un momento deseó haber vivido un siglo en el pasado.
+
+-Es interesante pero esta clase me aburre maestro - Interrumpió Willow con tono adolescente rebelde mientras tiraba de su traje en la zona que cubría el abdomen. - Séneca y Aurelio eran sabios pero un poco aburridos, ¿por qué debo aprender todo esto?.
+
+-Tu padre solicitó estas lecciones de estoicismo luego de que te robaras un montón de alcohol y llamaras a tus amigos para armar una orgía en tu propia casa Willow - Phoenix trataba de reprimir una carcajada-  ¡lo que hiciste fue meritorio de ver como se moderaron los hombres más poderosos del mundo hace 2.500 años! y tiene sentido, si te han escogido como futura gobernadora de Titán, no puedes andar por ahí armando orgías romanas.
+
+-¿Podemos ver una orgía romana? - Willow sonaba ahora mucho más seria y decidida al contemplar esa posibilidad, luego sacudió su cabeza y aclaró. -Sería con un propósito educativo.
+
+-Lo único que vas a ver será a Séneca y Marco Aurelio afrontando sus mayores retos y tentaciones, ve y tomate un descanso de dos horas - Phoenix sonaba resignado con su estudiante más rebelde.
+
+Willow salió a dar un paseo, paseo su mirada por la calle y vio a un grupo de saturnianos molestando a unas muchachas de marte que habían venido de excursión, más allá un grupo de esferas con tentáculos de neptuno que se descubrió 10 años atrás, eran seres hidrotermales muy inteligentes, se sonrojó por una idea muy extraña que cruzó su mente y siguió caminando para buscar algo de comer, la comida en Titán era mucho mejor que en la tierra y en marte, en las lunas de saturno había una gran cantidad de nutrientes que se habían agotado progresivamente en las tierras de los viejos planetas, se pidió una hamburguesa de “vaca fisiculturista” como le gustaba llamarlas a ella. Se sentó frente a un puesto callejero de comida rápida y se puso a recordar la sobriedad de Marco Aurelio.  “Por qué me resulta atractivo ese tipo tan aburrido y controlado, además se murió hace mucho” Pensaba Willow mientras jugaba con su cabello, pasaron un par de imágenes sugestivas por su mente mientras recordaba a Marco Aurelio, o fantaseaba, sacudió su cabeza como tratando de despejar su imaginación. “Debe ser este mar de hormonas que mencionaron en clase de biología humana, carajo es difícil moderarse”. Sus reflexiones pre estoicas fueron interrumpidas por una voz desconocida.
+
+-Psst, hey Willow!, ¿tienes tiempo para hacer una locura? - La voz era de un muchacho de alrededor de 25 años que se acurrucaba y ponía una mano al lado derecho de su boca como diciendo un secreto.
+
+-Ahora debo ser moderada en la prosperidad, y no te conozco vago. -Willow se giró en su silla mientras le pasaban su hamburguesa preparada al estilo arcaico, para esa fecha la mayoría de gente comía carne sintética.
+
+-De todas formas tampoco me mata salir con una carnívora prehistórica- Replicó el desconocido en tono burlón.
+
+Willow volteo los ojos mientras daba un gran mordisco al pedazo de vaca que había comprado y cuando miró nuevamente se encontró con la misma cara que ahora miraba indiferente en otra dirección mientras saludaba a quienes parecían ser sus amigos.
+
+-¿De qué se trata la aventura? - preguntó Willow fingiendo desinterés. -¿y por qué me conoces?
+
+- Un amigo tiene una nave disponible, podemos volar sobre los anillos de saturno, sobre por qué te conozco, fuiste escogida para gobernar esta luna, según dicen por tu inteligencia. Lo que no me cuadra es ¿cómo una chica que se presume inteligente, arma una orgía en su propia casa y quiere salir indemne de tremenda burrada?
+
+Willow se encogió de hombros y sintió enojo por un momento, seguido de un profundo interés en el desconocido que la trataba sin cuidar mucho sus palabras. Giró sobre su silla con las piernas extendidas reflexionando y respondió.
+
+-Está bien, iré a ver los anillos de saturno pero primero dime quien eres.
+
+-Mi nombre es Marco, descendiente de terrícolas italianos, pero eso qué importa, vamos a tener una aventura que valga la pena.
+
+Entraron a una nave pequeña dónde había 3 sillas frente a los mandos de la nave, al mejor estilo del halcón milenario de Star Wars, el amigo de Marco los esperaba con una sonrisa de lado a lado.
+
+El amigo de Marco se llamaba Eugenio Vera. Encendió su nave en una zona de lanzamiento clandestina. El cacharro de Vera hacía bastante ruido y despegó con una vibración estruendosa. Willow repetía de manera involuntaria en su mente una frase del emperador: “Todo lo que se desea en este mundo es miserable y corrupto”. Trató de entender su propia rebeldía y su gusto por ponerse en peligro. Solo pudo ver a su padre asignando responsabilidades que ella no deseaba. Desde que se subió a la nave, quiso bajarse.
+Miró por una pequeña ventana cómo se alejaban de la superficie de Titán. Abandonaba a escondidas el lugar que iba a gobernar. Cuando estuvieron en órbita, aceleraron hacia los anillos y se posicionaron sobre ellos para comenzar a deslizarse sobre esas preciosas estructuras. Justo en la zona donde, a su izquierda, veían anillos rojos y, a su derecha, anillos turquesa y verde. Marco explicó que el turquesa era agua helada casi pura. Lanzó una mirada de reojo a Willow con una sonrisa macabra y, acto seguido, se desabrochó el cinturón. Sacó un arma de su pantalón, apuntándole directamente a Willow, y declaró: “Señorita Willow Hastings, le informo que esto es un secuestro. Ahora vamos a ver de lo que está hecha en temas de orgías y luego ya hablaremos con su padre para negociar su rescate”.
+Willow sintió un gran terror y supo de inmediato que solo repetía la frase de Marco Aurelio porque, en el fondo, sabía que había cometido un terrible error. Se giró y corrió hacia la bodega trasera de la nave, consciente de que Marco no dispararía por miedo a dañar la cubierta y matarlos a todos. Vera se sumó al asalto, y la arrinconaron hasta tenerla rodeada. Intentó luchar, pero Marco la sujetó del brazo derecho y la arrojó al suelo. Apoyó su arma contra su nuca y comenzó a aflojarse el cinturón. Justo cuando Willow comprendió que vendría lo peor, las imágenes de Marco y Vera se congelaron. Todo se volvió de un color gris cenizo, similar a una neblina, y se dibujó la figura de Marco Aurelio frente a ella. Él la sujetó del mentón y levantó su cabeza.
+
+-Los deseos conducen a la permanente preocupación y decepción, ya que todo lo que se desea de este mundo es miserable y corrupto. -Le dijo el emperador con una expresión cálida y mirándola a los ojos. - Si vas a gobernar debes tener mesura en tu corazón, perspectiva en tu mente y claridad en lo que planeas, los mejores gobernantes no actuamos por impulso.
+
+Phoenix apareció junto a Marco Aurelio y miraba a Willow con un cariño paternal.
+
+-Con esto termina la lección de hoy, vamos a enseñarte el estoicismo, a cualquier costo, de cualquier manera. -Concluyó Phenix mientras la esfera negra tesIA daba vueltas lentamente frente a ambos, tomando datos y evaluando la mejor manera de enseñar a Willow a pensar como una mujer estoica.
+
+![estoica](\img\posts\willow_1.jpg)
+
+
 
 
 

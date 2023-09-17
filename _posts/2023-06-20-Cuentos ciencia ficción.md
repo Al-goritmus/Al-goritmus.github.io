@@ -986,7 +986,7 @@ Willow volteo los ojos mientras daba un gran mordisco al pedazo de vaca que hab�
 
 -¿De qué se trata la aventura? - preguntó Willow fingiendo desinterés. -¿y por qué me conoces?
 
-- Un amigo tiene una nave disponible, podemos volar sobre los anillos de saturno, sobre por qué te conozco, fuiste escogida para gobernar esta luna, según dicen por tu inteligencia. Lo que no me cuadra es ¿cómo una chica que se presume inteligente, arma una orgía en su propia casa y quiere salir indemne de tremenda burrada?
+-Un amigo tiene una nave disponible, podemos volar sobre los anillos de saturno, sobre por qué te conozco, fuiste escogida para gobernar esta luna, según dicen por tu inteligencia. Lo que no me cuadra es ¿cómo una chica que se presume inteligente, arma una orgía en su propia casa y quiere salir indemne de tremenda burrada?
 
 Willow se encogió de hombros y sintió enojo por un momento, seguido de un profundo interés en el desconocido que la trataba sin cuidar mucho sus palabras. Giró sobre su silla con las piernas extendidas reflexionando y respondió.
 

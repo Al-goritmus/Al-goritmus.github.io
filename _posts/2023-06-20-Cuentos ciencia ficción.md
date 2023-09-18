@@ -17,7 +17,7 @@ background: '/img/posts/moebius.png'
 * [Misandropolis 2099](#misandropolis-2099)
 * [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 * [Diario del fin del mundo](#Diario del fin del mundo)
-* [De filosofos y orgías romanas](#De filosofos y orgías romanas)
+* [De filósofos y orgías romanas](#De filósofos y orgías romanas)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 
@@ -896,7 +896,7 @@ Epílogo: Los eventos fueron registrados y narrados por una réplica artificial 
 ![heaven](\img\posts\heaven.png)
 
 
-## <a id="De filosofos y orgías romanas"></a>De filosofos y orgías romanas
+## <a id="De filósofos y orgías romanas"></a>De filósofos y orgías romanas
 
 ![astronautas](\img\posts\astronautas_romanos.jpg)
 
@@ -974,7 +974,9 @@ Marco Aurelio se quedó unos minutos en silencio contemplando la despedida del s
 
 -Lo único que vas a ver será a Séneca y Marco Aurelio afrontando sus mayores retos y tentaciones, ve y tomate un descanso de dos horas - Phoenix sonaba resignado con su estudiante más rebelde.
 
-Willow salió a dar un paseo, paseo su mirada por la calle y vio a un grupo de saturnianos molestando a unas muchachas de marte que habían venido de excursión, más allá un grupo de esferas con tentáculos de neptuno que se descubrió 10 años atrás, eran seres hidrotermales muy inteligentes, se sonrojó por una idea muy extraña que cruzó su mente y siguió caminando para buscar algo de comer, la comida en Titán era mucho mejor que en la tierra y en marte, en las lunas de saturno había una gran cantidad de nutrientes que se habían agotado progresivamente en las tierras de los viejos planetas, se pidió una hamburguesa de “vaca fisiculturista” como le gustaba llamarlas a ella. Se sentó frente a un puesto callejero de comida rápida y se puso a recordar la sobriedad de Marco Aurelio.  “Por qué me resulta atractivo ese tipo tan aburrido y controlado, además se murió hace mucho” Pensaba Willow mientras jugaba con su cabello, pasaron un par de imágenes sugestivas por su mente mientras recordaba a Marco Aurelio, o fantaseaba, sacudió su cabeza como tratando de despejar su imaginación. “Debe ser este mar de hormonas que mencionaron en clase de biología humana, carajo es difícil moderarse”. Sus reflexiones pre estoicas fueron interrumpidas por una voz desconocida.
+Willow salió a dar un paseo, paseo su mirada por la calle y vio a un grupo de saturnianos molestando a unas muchachas de marte que habían venido de excursión, más allá un grupo de esferas con tentáculos de neptuno que se descubrió 10 años atrás, eran seres hidrotermales muy inteligentes, se sonrojó por una idea muy extraña que cruzó su mente y siguió caminando para buscar algo de comer, la comida en Titán era mucho mejor que en la tierra y en marte, en las lunas de saturno había una gran cantidad de nutrientes que se habían agotado progresivamente en las tierras de los viejos planetas, se pidió una hamburguesa de “vaca fisiculturista” como le gustaba llamarlas a ella. 
+
+Se sentó frente a un puesto callejero de comida rápida y se puso a recordar la sobriedad de Marco Aurelio.  “Por qué me resulta atractivo ese tipo tan aburrido y controlado, además se murió hace mucho” Pensaba Willow mientras jugaba con su cabello, pasaron un par de imágenes sugestivas por su mente mientras recordaba a Marco Aurelio, o fantaseaba, sacudió su cabeza como tratando de despejar su imaginación. “Debe ser este mar de hormonas que mencionaron en clase de biología humana, carajo es difícil moderarse”. Sus reflexiones pre estoicas fueron interrumpidas por una voz desconocida.
 
 -Psst, hey Willow!, ¿tienes tiempo para hacer una locura? - La voz era de un muchacho de alrededor de 25 años que se acurrucaba y ponía una mano al lado derecho de su boca como diciendo un secreto.
 
@@ -986,7 +988,7 @@ Willow volteo los ojos mientras daba un gran mordisco al pedazo de vaca que hab�
 
 -¿De qué se trata la aventura? - preguntó Willow fingiendo desinterés. -¿y por qué me conoces?
 
-- Un amigo tiene una nave disponible, podemos volar sobre los anillos de saturno, sobre por qué te conozco, fuiste escogida para gobernar esta luna, según dicen por tu inteligencia. Lo que no me cuadra es ¿cómo una chica que se presume inteligente, arma una orgía en su propia casa y quiere salir indemne de tremenda burrada?
+-Un amigo tiene una nave disponible, podemos volar sobre los anillos de saturno, sobre por qué te conozco, fuiste escogida para gobernar esta luna, según dicen por tu inteligencia. Lo que no me cuadra es ¿cómo una chica que se presume inteligente, arma una orgía en su propia casa y quiere salir indemne de tremenda burrada?
 
 Willow se encogió de hombros y sintió enojo por un momento, seguido de un profundo interés en el desconocido que la trataba sin cuidar mucho sus palabras. Giró sobre su silla con las piernas extendidas reflexionando y respondió.
 
@@ -998,7 +1000,7 @@ Entraron a una nave pequeña dónde había 3 sillas frente a los mandos de la na
 
 El amigo de Marco se llamaba Eugenio Vera. Encendió su nave en una zona de lanzamiento clandestina. El cacharro de Vera hacía bastante ruido y despegó con una vibración estruendosa. Willow repetía de manera involuntaria en su mente una frase del emperador: “Todo lo que se desea en este mundo es miserable y corrupto”. Trató de entender su propia rebeldía y su gusto por ponerse en peligro. Solo pudo ver a su padre asignando responsabilidades que ella no deseaba. Desde que se subió a la nave, quiso bajarse.
 Miró por una pequeña ventana cómo se alejaban de la superficie de Titán. Abandonaba a escondidas el lugar que iba a gobernar. Cuando estuvieron en órbita, aceleraron hacia los anillos y se posicionaron sobre ellos para comenzar a deslizarse sobre esas preciosas estructuras. Justo en la zona donde, a su izquierda, veían anillos rojos y, a su derecha, anillos turquesa y verde. Marco explicó que el turquesa era agua helada casi pura. Lanzó una mirada de reojo a Willow con una sonrisa macabra y, acto seguido, se desabrochó el cinturón. Sacó un arma de su pantalón, apuntándole directamente a Willow, y declaró: “Señorita Willow Hastings, le informo que esto es un secuestro. Ahora vamos a ver de lo que está hecha en temas de orgías y luego ya hablaremos con su padre para negociar su rescate”.
-Willow sintió un gran terror y supo de inmediato que solo repetía la frase de Marco Aurelio porque, en el fondo, sabía que había cometido un terrible error. Se giró y corrió hacia la bodega trasera de la nave, consciente de que Marco no dispararía por miedo a dañar la cubierta y matarlos a todos. Vera se sumó al asalto, y la arrinconaron hasta tenerla rodeada. Intentó luchar, pero Marco la sujetó del brazo derecho y la arrojó al suelo. Apoyó su arma contra su nuca y comenzó a aflojarse el cinturón. Justo cuando Willow comprendió que vendría lo peor, las imágenes de Marco y Vera se congelaron. Todo se volvió de un color gris cenizo, similar a una neblina, y se dibujó la figura de Marco Aurelio frente a ella. Él la sujetó del mentón y levantó su cabeza.
+Willow sintió un gran terror y supo de inmediato que solo repetía la frase de Marco Aurelio porque, en el fondo, sabía que había cometido un terrible error. Se giró y corrió hacia la bodega trasera de la nave, consciente de que Marco no dispararía por miedo a dañar la cubierta y matarlos a todos. Vera se sumó al asalto, y la arrinconaron hasta tenerla rodeada. Intentó luchar, pero Marco que poseía una mueca sádica en el rostro, la sujetó del brazo derecho y la arrojó al suelo. Apoyó su arma contra su nuca y comenzó a aflojarse el cinturón. Justo cuando Willow comprendió que vendría lo peor, las imágenes de Marco y Vera se congelaron y todo se volvió de un color gris cenizo, similar a una neblina, y se dibujó la figura de Marco Aurelio frente a ella. Él la sujetó del mentón y levantó su cabeza.
 
 -Los deseos conducen a la permanente preocupación y decepción, ya que todo lo que se desea de este mundo es miserable y corrupto. -Le dijo el emperador con una expresión cálida y mirándola a los ojos. - Si vas a gobernar debes tener mesura en tu corazón, perspectiva en tu mente y claridad en lo que planeas, los mejores gobernantes no actuamos por impulso.
 

@@ -900,7 +900,7 @@ Epílogo: Los eventos fueron registrados y narrados por una réplica artificial 
 
 ![astronautas](\img\posts\astronautas_romanos.jpg)
 
-El sol daba sus habituales primeras notas matutinas en Córcega, las aves, habitantes milenarios de la isla daban su concierto sin fallar una nota, pero esa mañana fueron interrumpidas por el aura poderoso de la guardia imperial que acabó con el canto del bosque y lo reemplazó por el sonido del cuero contra la arena y el roce metálico de las armaduras legionarias. El emperador fue escoltado en una rápida conquista de la playa y luego escoltado hasta la casa dónde Séneca cumplía el deber del exilio. La legión de la guardia imperial acompañó a Nerón en su camino hasta indicarle el lugar correcto, se paró frente al humilde portón de madera detrás del cual todos sabían, se encontraba el más grande de los estoicos.
+El sol daba sus habituales primeras notas matutinas en Córcega, las aves, habitantes milenarios de la isla daban su concierto sin fallar una nota, pero esa mañana fueron interrumpidas por el aura poderoso de la guardia imperial que acabó con el canto del bosque y lo reemplazó por el sonido del cuero contra la arena y el roce metálico de las armaduras legionarias. El emperador fue escoltado en una rápida conquista de la playa y luego dirigido hasta la casa dónde Séneca cumplía el deber del exilio. La legión de la guardia imperial acompañó a Nerón en su camino hasta indicarle el lugar correcto, se paró frente al humilde portón de madera detrás del cual todos sabían, se encontraba el más grande de los estoicos.
 
 ![romanos](\img\posts\roman_legionaries.jpg)
 
@@ -940,7 +940,7 @@ En la siguiente lección decidieron visitar la tierra 100 años después de muer
 
 -La tiene Patro, la tiene y la tendrá en mil años, lo que nos trató de enseñar Séneca será recordado por todo lo que dure la gloria de Roma y aún después, solo mira hacia el pasado con sus imperios cambiantes que se alzaron y cayeron, y  serás capaz de prever el futuro.-Marco Aurelio olió una copa de vino y dio un pequeño sorbo para degustar, acto seguido la devolvió a su lugar de reposo.
 
-Marco Aurelio se despidió de Patro y se fue camino al recinto del emperador.
+El coemperador se despidió de Patro y se fue camino al recinto del emperador.
 
 ![aurelio](\img\posts\marco_aurelio_walking.jpg)
 

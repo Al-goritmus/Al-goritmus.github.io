@@ -896,7 +896,7 @@ Epílogo: Los eventos fueron registrados y narrados por una réplica artificial 
 ![heaven](\img\posts\heaven.png)
 
 
-## <a id="De filosofos y orgías romanas"></a>De filosofos y orgías romanas
+## <a id="De filósofos y orgías romanas"></a>De filósofos y orgías romanas
 
 ![astronautas](\img\posts\astronautas_romanos.jpg)
 

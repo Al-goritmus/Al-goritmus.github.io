@@ -940,7 +940,7 @@ En la siguiente lección decidieron visitar la tierra 100 años después de muer
 
 -La tiene Patro, la tiene y la tendrá en mil años, lo que nos trató de enseñar Séneca será recordado por todo lo que dure la gloria de Roma y aún después, solo mira hacia el pasado con sus imperios cambiantes que se alzaron y cayeron, y  serás capaz de prever el futuro.-Marco Aurelio olió una copa de vino y dio un pequeño sorbo para degustar, acto seguido la devolvió a su lugar de reposo.
 
-El coemperador se despidió de Patro y se fue camino al recinto del emperador.
+Aurelio se despidió de Patro y se fue camino al recinto del emperador.
 
 ![aurelio](\img\posts\marco_aurelio_walking.jpg)
 

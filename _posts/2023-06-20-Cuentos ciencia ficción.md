@@ -962,7 +962,7 @@ Marco Aurelio se acomodó la capa de emperador y con su calma habitual recitó u
 
 -Suena razonable, tienes mi pulgar apuntando al cielo, yo estaré en mi lupanar favorito, sabrás donde encontrarme querido hermano. Siempre nos diferencia esto, tu piensas en el trabajo y en invocar el centenario razonamiento de Séneca, yo pienso en vivir la vida como lo que es, un mar de placeres esperando a ser navegado, cuídate mucho Marcus Aurelius Augustus. -Se despidió Lucio Vero mientras tomaba su jarra de vino e iba al encuentro de su propia esclavitud. - ¿Algún consejo?  - preguntó Lucio divertido al girar su rostro al emperador filósofo.
 
--Solo no olvides la importancia de ser moderado en la prosperidad y sobrio en la adversidad, porque esto es la sabiduría - Replicó Marco Aurelio en voz alta y mirando el atardecer, tratando de disuadir sin éxito a su amigo y hermano de otra madre: Lucio Vero.
+-Solo no olvides la importancia de ser moderado en la prosperidad y sobrio en la adversidad, porque esto es la sabiduría - Replicó Marco Aurelio en voz alta y mirando el atardecer, tratando de disuadir sin éxito a su amigo y hermano de otra madre.
 
 Marco Aurelio se quedó unos minutos en silencio contemplando la despedida del sol, pensó en su responsabilidad con Roma, en la grandeza de Séneca, trató sin éxito de escuchar al maestro que nunca conoció y por un momento deseó haber vivido un siglo en el pasado.
 

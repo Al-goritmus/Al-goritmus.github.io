@@ -17,7 +17,7 @@ background: '/img/posts/moebius.png'
 * [Misandropolis 2099](#misandropolis-2099)
 * [Freyja, la diosa de los anarquistas](#Freyja, la diosa de los anarquistas)
 * [Diario del fin del mundo](#Diario del fin del mundo)
-* [De filosofos y orgías romanas](#De filosofos y orgías romanas)
+* [De filósofos y orgías romanas](#De filósofos y orgías romanas)
 
 ## <a id="bucle-infinito"></a>Bucle infinito
 

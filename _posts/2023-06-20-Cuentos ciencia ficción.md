@@ -29,7 +29,7 @@ insignia de la clase media, con todos los adornos que no le asignó la naturalez
 lo extraño qué debía ser para su instinto vivir liberado de las amenazas de las llanuras
 africanas, presa de las tranquilidades modernas envasadas y comercializadas, debía
 sentirse que le faltaba algo a la existencia, pensó que tal vez la peor carencia del hombre
-moderno, es que no le falta nada, pues hizo del mundo su hogar y se convirtió en un
+moderno, era que no le faltaba nada, pues hizo del mundo su hogar y se convirtió en un
 extraño en su propia casa.
 
 En el asiento del copiloto iba un libro sin terminar: La felicidad paradójica de Lipovetsky, al
@@ -59,7 +59,7 @@ cuando abrió el correo electrónico para dar una mira rutinaria a lo mismo de s
 chilenos y los australianos habían informado un fenómeno extraño, parecían haber
 detectado señales de láser originadas dentro del sistema solar.
 
-- ¿Están seguros que el láser no venía de nuestros instrumentos espaciales? algún
+-¿Están seguros que el láser no venía de nuestros instrumentos espaciales? algún
 artefacto fabricado por el ser humano? - preguntó Holmes incrédulo a los científicos del
 observatorio en Chile.
 
@@ -126,7 +126,7 @@ volver a ser humanos para simplemente poder morir.
 
 Invadido por memorias de una versión millones de años más vieja y cruel de sí mismo,
 Holmes renunció a su destino y escogió morir tranquilo en la tierra. Pensó que tal vez la
-peor carencia del hombre espacial, era que le falta todo, pues no tenía un mundo ni hogar.
+peor carencia del hombre espacial, era que le faltaba todo, pues no tenía un mundo ni hogar.
 Holmes no fue al espacio, en consecuencia nunca volvió para advertirse sobre no ir.
 
 ![elbow_code](\img\posts\moebius.png)
@@ -147,7 +147,7 @@ Infinito.
 
 -No puedo perderla,  todo menos ella.
 
-Esas palabras se arremolinaban cómo pequeñas luces qué flotaban en una nube hecha de una sustancia extraña, donde una suerte de materia oscura revolvía ideas y sentimientos, había pequeñas burbujas qué iluminaban tímidamente la oscuridad, cada una de ellas era un recuerdo o una emoción, algunas burbujas, las más brillantes eran fantasías y otras, las más oscuras, eran los miedos. Justo así y no de otra manera, se ve el oscuro y sublime paisaje que integra al subconsciente de un ser humano.
+Esas palabras se arremolinaban cómo pequeñas luces que flotaban en una nube hecha de una sustancia extraña, donde una suerte de materia oscura revolvía ideas y sentimientos, había pequeñas burbujas qué iluminaban tímidamente la oscuridad, cada una de ellas era un recuerdo o una emoción, algunas burbujas, las más brillantes eran fantasías y otras, las más oscuras, eran los miedos. Justo así y no de otra manera, se ve el oscuro y sublime paisaje que integra al subconsciente de un ser humano.
 
 Damian llevaba algunos meses en esto, estaba buscando la forma de navegar el subconsciente, en realidad había encontrado ese camino 10 años atrás y lo hizo consumiendo LSD, Peyote y cantidades absurdas de Ginebra, pero esta no parecía y no era, una estrategia sostenible en un plazo compatible con la vida. Otros humanos, los primeros chamanes, conocían ese camino hacía más de 100 mil años, cuando comieron hongos hasta entonces desconocidos, bajo la luz de auroras boreales en Escandinavia o las estrellas qué iluminaban la sabana africana, otros alucinaron con las mismas auroras y estrellas en Australia cuando incendiaron bosques para ganar terreno y por casualidad incineraban a los espíritus del bosque, fue ahí y no en otro lugar donde comenzó el primer viaje introspectivo del hijo maldito del monte Kilimanjaro, el homo sapiens fue en su origen un cosmonauta de su propio subconsciente y descubrió de buen manera las plantas malditas, las malditas plantas para navegarlo. Damian había encontrado el camino a su subconsciente mientras adulteraba su alma, o lo que quedara de ella, con copias baratas de sustancias ancestrales que alguna vez fueron sagradas.
 
@@ -155,7 +155,7 @@ La diferencia ahora era abismal, porque el acceso al subconsciente era a través
 
 Ian sabía bien que su corazón era enorme, pero no cómo imaginaba a una estrella, más bien cómo un pozo sin fondo, algo tan profundo qué ni todo el amor del mundo lo podría llenar. Se conocía muy poco, pero lo suficiente para entender que su materia oscura era más oscura que la de las otras personas que le rodeaban, durante muchos años se sintió orgulloso de algo que avergonzaba a todos: su propia oscuridad, ya que esta era mucho peor y por lo tanto: única, se había aferrado al valor de sentirse único por algo qué avergonzaba a la mayoría y esa simple idea le resultaba placentera. Alicia era diferente, parecía estar en paz con sus demonios y por lo tanto brillaba mejor que nadie. No era la sonrisa, era más bien la mirada, una de esas miradas que recuerdas durante días, un triángulo de las bermudas entre la boca y las cejas, “valdría la pena perderse ahí”-se dijo Ian mientras le dedicaba una sonrisa estudiada, de laboratorio y de memoria.
 
-Alicia tenía lo que las personas entienden cómo una belleza universal, él cabello era castaño, los ojos muy oscuros y expresivos, ¡y carajo! era extraño sobre todo, qué una mujer pudiera tener tanta luz en unos ojos tan oscuros, sus dientes parecían haber sido cuidadosamente acomodados por un diseño inteligente pues cada imperfección parecía encajar en una armonía superior, los hombros eran un poco estrechos y sus caderas tenían la distancia perfecta, pues parecía hecha a la medida de sus mejores fantasías. Había, en todo caso, una contradicción curiosa en ella: su cuerpo parecía diseñado sobre los planos de alguna Venus  olvidada en los ires y venires de la historia, pero estaba lleno de naturaleza, esa naturaleza qué invade y posee a los espíritus de los hombres. Todo ese fatal embrujo sólo aumentaría su intensidad con la voz y el discurso de Alicia, qué vendría acompañado de los últimos rayos del sol.
+Alicia tenía lo que las personas entienden cómo una belleza universal, el cabello era castaño, los ojos muy oscuros y expresivos, ¡y carajo! era extraño sobre todo, qué una mujer pudiera tener tanta luz en unos ojos tan oscuros, sus dientes parecían haber sido cuidadosamente acomodados por un diseño inteligente pues cada imperfección parecía encajar en una armonía superior, los hombros eran un poco estrechos y sus caderas tenían la distancia perfecta, pues parecía hecha a la medida de sus mejores fantasías. Había, en todo caso, una contradicción curiosa en ella: su cuerpo parecía diseñado sobre los planos de alguna Venus  olvidada en los ires y venires de la historia, pero estaba lleno de naturaleza, esa naturaleza qué invade y posee a los espíritus de los hombres. Todo ese fatal embrujo sólo aumentaría su intensidad con la voz y el discurso de Alicia, qué vendría acompañado de los últimos rayos del sol.
 
 Cuando todos se bajaron del yate, ya la noche estaba bien caída sobre sus hombros, el olor a mar y la inversión en la dirección de la brisa anunciaban un desenlace interesante. Ian que hasta entonces se consideraba un galán, tuvo una poderosa lucha interna para acercarse a hablarle, pues eran solo palabras pero, ¿cuales?. Al verlo dudar de esa manera, Alicia se acercó y lucía dispuesta a conversar, ladeo la cabeza dispuesta a escucharlo, parecía desear qué esa primera impresión valiera la pena.
 
@@ -197,8 +197,6 @@ Pasó sus últimos días sólo, masticando sus recuerdos, explorando un universo
 Alicia.
 
 Morte.
-
-
 
 
 

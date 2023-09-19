@@ -661,9 +661,9 @@ Gabriel rascaba vigorosamente su pierna derecha con el lado sin filo de un hacha
 
 -Si te atreves a volver, me voy a encargar de que veas cómo preparamos y cenamos cada músculo de tus piernas. - Carolina volvía a tener una sonrisa pícara de lado a lado y Mariano pudo jurar que la vio pasear la punta de su lengua por su labio superior.
 
-Mariano se puso de pie, caminó directo hacia la puerta y la abrió despacio, comenzó a dar pasos largos y cuando se sintió fuera del alcance de la beretta de Carolina, comenzó a correr con todas sus fuerzas.
+Se puso de pie, caminó directo hacia la puerta y la abrió despacio, comenzó a dar pasos largos y cuando se sintió fuera del alcance de la beretta de Carolina, comenzó a correr con todas sus fuerzas.
 
-Cuando tuvo oportunidad de parar a recuperar el aliento pudo ver una zanja al lado izquierdo de la vía donde había ropa, zapatos grandes y pequeños, pieles humanas y huesos. Volteó a ver la mansión de caníbales de la que tuvo la suerte de salir vivo, respiró profundo y retomó el camino, el eterno camino a ningún lugar, trató sin éxito de recordar a Sofía y se echó a andar en busca de algo para comer, cualquier cosa menos carne humana. Su antigua personalidad obsesiva y acumuladora no servían de nada en un mundo donde todo el mundo ya había perdido todo.
+Cuando tuvo oportunidad de parar a recuperar el aliento pudo ver una zanja al lado izquierdo de la vía donde había ropa, zapatos grandes y pequeños, pieles humanas y huesos. Volteó a ver la mansión de caníbales de la que tuvo la suerte de salir vivo, respiró profundo y retomó el camino, el eterno camino a ningún lugar, trató sin éxito de recordar a Sofía y se echó a andar en busca de algo para comer, cualquier cosa menos carne humana. Su antigua personalidad obsesiva y acumuladora no servían de nada en un mundo donde todo el mundo ya había perdido todo, en el mundo del canibal de la logia.
 
 ![poe](\img\posts\poe_running2.png)
 
@@ -828,7 +828,6 @@ Sofía se deterioró hasta convertirse en un vegetal 3 años más tarde, sus úl
 Elías asintió, sabiendo que de alguna forma habían hecho lo correcto. Aunque el precio había sido alto, la humanidad finalmente estaba libre del arquitecto. Miró una última vez a la pequeña figura en la cama y al salir dedicó unas palabras a sus padres, rindiendo homenaje a la joven que había sido la chispa de la revolución.
 
 3 días más tarde en casa de Elías, Frejya se encendió en automático y sin haber recibido ninguna orden, se dibujó un conejo que comenzó a saltar por el aire mientras una combinación entre la conciencia de la maquina y Sofía planeaba su siguiente movimiento: la extinción de la humanidad.
-
 
 
 

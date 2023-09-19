@@ -779,9 +779,7 @@ Elías era un hombre de unos 50 años, su cabello era corto y poblado de canas, 
 
 Al ingresar a un cuarto espacioso se encontraron con 4 paredes grises iluminadas por lámparas típicas de los bunkeres de la segunda guerra mundial. Se miraron sin decir nada durante un momento, luego Amanda le indicó con un gesto donde podía sentarse e instalar su computadora. Elías miró con desdén su escritorio y caminó de mala gana hasta sentarse, emitiendo un sonoro ruido de descanso, típico de los hombres que Amanda no soportaba con facilidad.
 
--Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por las instalaciones. 
-
--Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
+-Vamos a compartir esta habitación, quiero que entiendas que no puedo simplemente dejarte andar borracho por las instalaciones. -Amanda se cruzó de brazos y ladeo levemente su cadera para establecer su autoridad.
 
 -Pero mama! -protestó Elías divertido – ¿Al menos puedo salir y jugar con mis amigos? –  Se recostó y apoyó su cabeza en sus manos cruzadas, un gesto de suficiencia que enfatizaba cada palabra de su sarcasmo.
 
@@ -809,7 +807,11 @@ El holograma era ahora una mujer con los ojos vendados encadenada y de rodillas,
 
 ![sofia](\img\posts\sofia.png)
 
-La máquina Freyja, funcionó de acuerdo con lo esperado, cuando se entregaban planos y planes a Sofía, ella fabricaba las ideas más extrañas y absurdas, todas y cada una de ellas funcionaron, tras 2 años de campaña un equipo de soldados liderados por Amanda consiguió acabar con el arquitecto qué residía en Londres y con la secta de psicópatas, la elite mundial que hacían uso de la máquina, fue la simbiosis entre Sofía y Freyja la que devolvió la ilusión de la libertad a todas las personas del mundo. 
+La máquina Freyja, funcionó de acuerdo con lo esperado, cuando se entregaban planos y planes a Sofía, ella fabricaba las ideas más extrañas y absurdas, todas y cada una de ellas funcionaron, tras 2 años de campaña un equipo de soldados liderados por Amanda consiguió acabar con el arquitecto qué residía en Londres y con la secta de psicópatas, la elite mundial que hacía uso de la máquina, fue la simbiosis entre Sofía y Freyja la que devolvió la ilusión de la libertad a todas las personas del mundo. 
+
+..
+
+Elías soñaba con un código roto, en descomposición, una imágen rarísima, era como si el código estuviera corrupto o enfermo, trataba de arreglarlo pero cada que llenaba un espacio vacío, aparecían otros 5.
 
 -Elías, despierta. Está ocurriendo algo extraño con Sofía. -Amanda sonaba genuinamente preocupada y por primera vez: humana.
 
@@ -827,7 +829,7 @@ Sofía se deterioró hasta convertirse en un vegetal 3 años más tarde, sus úl
 
 Elías asintió, sabiendo que de alguna forma habían hecho lo correcto. Aunque el precio había sido alto, la humanidad finalmente estaba libre del arquitecto. Miró una última vez a la pequeña figura en la cama y al salir dedicó unas palabras a sus padres, rindiendo homenaje a la joven que había sido la chispa de la revolución.
 
-3 días más tarde en casa de Elías, Frejya se encendió en automático y sin haber recibido ninguna orden, se dibujó un conejo que comenzó a saltar por el aire mientras una combinación entre la conciencia de la maquina y Sofía planeaba su siguiente movimiento: la extinción de la humanidad.
+3 días más tarde en casa de Elías, Frejya se encendió en automático y sin haber recibido ninguna orden, se dibujó un conejo que comenzó a saltar por el aire mientras una combinación entre la conciencia de la maquina y Sofía planeaba su siguiente movimiento: la extinción de la humanidad, un evento absolutamente impredecible.
 
 
 

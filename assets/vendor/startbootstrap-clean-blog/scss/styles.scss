@@ -16,3 +16,18 @@
 @import "./sections/footer";
 @import "./sections/masthead";
 @import "./sections/post";
+
+
+body {
+    background-color: #1a1a1a; /* Dark background */
+    color: white; /* White text */
+}
+
+/* You can also add specific styles for headers, links, etc. */
+h1, h2, h3, h4, h5, h6 {
+    color: white;
+}
+
+a {
+    color: #0096FF; /* Example: Bright blue links */
+}

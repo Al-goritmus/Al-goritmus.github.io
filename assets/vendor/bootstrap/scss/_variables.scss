@@ -1144,3 +1144,22 @@ $user-selects: all, auto, none !default;
 
 $print-page-size:                   a3 !default;
 $print-body-min-width:              map-get($grid-breakpoints, "lg") !default;
+
+
+$background-color: #1a1a1a;
+$text-color: white;
+$link-color: #0096FF;
+
+body {
+    background-color: $background-color;
+    color: $text-color;
+}
+
+h1, h2, h3, h4, h5, h6 {
+    color: $text-color;
+}
+
+a {
+    color: $link-color;
+}
+

@@ -4,9 +4,9 @@ title: "MCuentos de ficción distópica\n
 
 [Aquí usamos un prisma más oscuro para abordar dilemas de la mente humana a través de la ficción]"
 subtitle: "La complejidad es un pretexto para decir lo que no queremos decir directamente"
-background: '/img/posts/kthulu_implicit.png'
+background: '/img/posts/kthulu_implicit.jpg'
 ---
 
-![writer](\img\posts\physician_distopia_dreams.png)
+![firstpic](\img\posts\physician_distopia_dreams.jpg)
 
 Physician distopia dreams.

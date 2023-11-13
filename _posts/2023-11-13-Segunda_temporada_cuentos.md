@@ -1,3 +1,4 @@
+---
 layout: post
 title: "MCuentos de ficción distópica\n
 [Aquí usamos un prisma más oscuro para abordar dilemas de la mente humana a través de la ficción]"

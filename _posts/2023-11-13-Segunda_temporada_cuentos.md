@@ -1,19 +1,20 @@
 ---
 layout: post
-title: "Cuentos de ficción distópica\n 
+title: "Cuentos de ficción distópica\n"
 
-[Aquí usamos un prisma más oscuro para abordar dilemas de la mente humana a través de la ficción]"
-subtitle: "La complejidad es un pretexto para decir lo que no queremos decir directamente"
+subtitle: "Aquí usamos un prisma más oscuro para abordar dilemas de la mente humana a través de la ficción literaria con elementos distópicos"
 background: '/img/posts/physician_distopia_dreams.jpg'
 ---
 
 ![firstpic](\img\posts\kthulu_implicit2.jpg)
 
-Physician distopia dreams.
 
-* [Franco, el peón iluminado](#franco-iluminado)
+* [Franco, el último iluminado](#franco-iluminado)
 
-## <a id="franco-iluminado"></a>Franco, el peón iluminado
+
+## <a id="franco-iluminado"></a>Franco, el último iluminado
+
+![secondpic](\img\posts\franco_business.jpg)
 
 Franco se levantó de golpe y quedó sentado en la cama bañado en su propio sudor, Giorgia le puso una mano en el hombro y lo miró preocupada.  -¿Pasa algo cariño? - Sonaba genuinamente preocupada por la única persona que realmente admiraba. 
 
@@ -21,7 +22,7 @@ Franco se levantó de golpe y quedó sentado en la cama bañado en su propio sud
 
 Gia, como la llamaba Franco con cariño, tenía el cabello castaño, ondulado y corto, los ojos color vino granate, grandes y expresivos. Sus rasgos eran mediterráneos, recordaban vagamente a las antiguas musas helénicas. Llevaba puesta una pijama de seda Versace, específicamente una pijama corta Barocco de jacquard del año 2023. Su trabajo como directora de Marketing de la misma compañía le había llenado el guardarropa de prendas extravagantes y poco prácticas. Ella sabía bien que si fuera diseñadora, podría crear mejores vestidos, pero las pijamas no estaban mal e iba perfecto con su figura cuidada gracias a un estilo de vida fitness, testigo de una lucha interminable contra el paso del tiempo.
 
-![firstpic](\img\posts\gia_ultimate.jpg)
+![firstpic](\img\posts\Gia.jpg)
 
 Franco, un escritor de 34 años, era cinco años mayor que Gia. Tenía el cabello crespo y oscuro, al igual que sus ojos. En varias ocasiones, sus amigos lo habían comparado con Milo Ventimiglia debido a su parecido físico, también le habían dicho en repetidas ocasiones que debía ir al gimnasio, ya que parecía una versión pálida y descuidada del actor. Había construido su estatus escribiendo literatura erótica y había escalado tan alto como su imaginación se lo había permitido.
 
@@ -55,6 +56,8 @@ En el presente, eran una pareja exitosa que seguía ambicionando más en el mund
 Dicho esto el economista comenzó a nadar, dejando atrás a Franco, quien se impulsó con sus pies y comenzó a nadar frenéticamente para superar a su rival. Luego comenzó a escuchar el motor de un carro seguido de un pitido prolongado, abrió los ojos y estaba en la mitad de la calle, tuvo que saltar hacia el frente para evitar se atropellado por un auto, cayendo de bruces, se puso de pie como pudo y miró a su alrededor para reconocer el contexto, sin ver a nadie conocido. Llevaba un traje Ottavio Nuccio de raya diplomática que no usaba desde que presentó su segundo libro. “¿Pero qué mierda hago aquí?”, se preguntó Franco desconcertado. De pronto una dama desconocida lo tomó de gancho y comenzaron a caminar juntos mientras Franco la miraba tratando de reconocerla.
 
 Bruna era una mujer de 24 años, cabello oscuro, 1.62 de estatura, aspecto latino, Franco la recordaba de una gala en la que se casó una amiga de Gia 1 año atrás, recordaba haber recibido algunas miradas seductoras de Bruna pero nada más que eso. 
+
+![firstpic](\img\posts\bruna.jpg)
 
 -¿Qué haces aquí Bruna, donde está Gia? - Franco miraba a ambos lados de la calle buscando a su amada. 
 

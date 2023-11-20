@@ -16,11 +16,11 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 
 ![secondpic](\img\posts\franco_business.jpg)
 
-Franco se levantó de golpe y quedó sentado en la cama bañado en su propio sudor, Giorgia le puso una mano en el hombro y lo miró preocupada.  -¿Pasa algo cariño? - Sonaba genuinamente preocupada por la única persona que realmente admiraba. 
+Franco se levantó de golpe, quedando sentado en la cama bañado en su propio sudor, Giorgia le puso una mano en el hombro y lo miró preocupada.  -¿Pasa algo cariño? - Sonaba genuinamente preocupada por la única persona que realmente admiraba. 
 
--Me pasó otra vez, Gia, estoy soñando con ese maldito economista, la piscina enorme y nadamos, no sólo nadamos, competimos pero no consigo ganarle al cabrón. Al final me sonríe con burla y yo lo observo, luego comenzamos a nadar, termino agotado en la mitad de esa piscina eterna, pero no puedo ganar al maldito alemán ese - Franco sonaba abatido. Era tan competitivo que hasta sus sueños se frustraban cuando no ganaba en algo.
+-Me pasó otra vez, estoy soñando con ese maldito economista, la piscina enorme y nadamos...no sólo nadamos, competimos pero no consigo ganarle al cabrón. Al final me sonríe con burla y yo lo observo, luego comenzamos a nadar otra vez y termino agotado en la mitad de esa piscina eterna, pero no puedo ganar al maldito alemán ese - Franco sonaba abatido, era tan competitivo que hasta sus sueños se frustraban cuando no ganaba en algo.
 
-Gia, como la llamaba Franco con cariño, tenía el cabello castaño, ondulado y corto, los ojos color vino granate, grandes y expresivos. Sus rasgos eran mediterráneos, recordaban vagamente a las antiguas musas helénicas. Llevaba puesta una pijama de seda Versace, específicamente una pijama corta Barocco de jacquard del año 2023. Su trabajo como directora de Marketing de la misma compañía le había llenado el guardarropa de prendas extravagantes y poco prácticas. Ella sabía bien que si fuera diseñadora, podría crear mejores vestidos, pero las pijamas no estaban mal e iba perfecto con su figura cuidada gracias a un estilo de vida fitness, testigo de una lucha interminable contra el paso del tiempo.
+Gia, como la llamaba Franco con cariño, tenía el cabello castaño y ondulado, los ojos color vino granate, grandes y expresivos. Sus rasgos eran mediterráneos, . Llevaba puesta una pijama de seda Versace, específicamente una pijama corta Barocco de jacquard del año 2023. Su trabajo como directora de Marketing de la misma compañía le había llenado el guardarropa de prendas extravagantes y poco prácticas. Ella sabía bien que si fuera diseñadora, podría crear mejores vestidos, pero las pijamas no estaban mal e iba perfecto con su figura cuidada gracias a un estilo de vida fitness, testigo de una lucha interminable contra el paso del tiempo.
 
 ![firstpic](\img\posts\Gia.jpg)
 
@@ -57,7 +57,7 @@ Dicho esto el economista comenzó a nadar, dejando atrás a Franco, quien se imp
 
 Bruna era una mujer de 24 años, cabello oscuro, 1.62 de estatura, aspecto latino, Franco la recordaba de una gala en la que se casó una amiga de Gia 1 año atrás, recordaba haber recibido algunas miradas seductoras de Bruna pero nada más que eso. 
 
-![firstpic](\img\posts\bruna.jpg)
+![firstpic](\img\posts\bruna2.jpg)
 
 -¿Qué haces aquí Bruna, donde está Gia? - Franco miraba a ambos lados de la calle buscando a su amada. 
 

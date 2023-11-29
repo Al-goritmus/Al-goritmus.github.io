@@ -19,7 +19,6 @@ background: '/img/posts/moebius.png'
 * [Diario del fin del mundo](#Diario del fin del mundo)
 * [De filósofos y orgías romanas](#De filósofos y orgías romanas)
 
-## <a id="bucle-infinito"></a>Bucle infinito
 
 Bucle infinito.
 

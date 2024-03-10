@@ -402,9 +402,10 @@ Ninguno pudo dormir bien esa noche, un rayo de sol iluminó la oscuridad de la v
 
 Siguieron a los lobos por 30 minutos hasta llegar a un punto dónde se reveló ante ellos una imagen cruel. Había 2 lobeznos de aproximadamente 6 meses atrapados en trampas hechas por humanos. los lobos desfilaron dibujando un círculo en torno a los lobeznos y su intención se hizo evidente. Mike dudó por unos instantes y luego siguiendo una vez más su instinto, caminó lentamente hasta las trampas y con el corazón intentando salir de su pecho, liberó a los lobeznos, que corrieron hacia la manada para ponerse a salvo. El lobo de ojos azules inclinó la cabeza como haciendo una reverencia, luego lanzó un largo aullido y la manada se puso en marcha. 
 
+[Wonder-Victor Ruiz](hhttps://open.spotify.com/intl-es/track/6pB2YpyooKBao791pVNCtw?si=0fa50bae7f3644d8)
+
 Esa noche mientras descansaban en el pueblo de Kuusamo, comenzó a soñar nuevamente que era el abuelo de dos tipos jóvenes que lo interrumpían todo el día para preguntarle cosas que le resultaban obvias, no entendía el punto de todo aquello, se removió para acomodar sus cobijas pues el frío era inclemente. Comenzó a soñar que cruzaba otra vez el río Vuoksi pero esta vez era diferente, no podía sentir los latidos de su corazón, ni el agua helada en los pies, no sentía miedo, sólo observaba toda la escena como en una película. Entendió que se encontraba en la frontera entre la vida y la muerte, la vigilia en el sueño, pudo ver una versión anciana de sí mismo de un color azul pálido caminando hacia él, tenía el estilo de un holograma. La versión  viva y no viva de Mike hablaron al mismo tiempo: “¿Cómo es posible?. 
 
-[Wonder-Victor Ruiz](hhttps://open.spotify.com/intl-es/track/6pB2YpyooKBao791pVNCtw?si=0fa50bae7f3644d8)
 
 Se encontraban en una habitación completamente oscura, había pantallas antiguas dónde se podía ver muchos momentos clave en la vida de Mike, en uno de ellos su madre lo abrazaba y lo consolaba luego de sufrir su primera fractura. Ambos miraron en todas direcciones tratando de entender en dónde estaban.
 

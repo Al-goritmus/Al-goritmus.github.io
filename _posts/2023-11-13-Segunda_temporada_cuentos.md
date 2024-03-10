@@ -238,7 +238,7 @@ Final de la parte 1.
 
 ## <a id="paradoja-inmortal"></a>La paradoja inmortal
 
-![firstpic1](\img\posts\mike1.jpg)
+![firstpic1](\img\posts\Mike1.jpg)
 
 
 La paradoja inmortal.
@@ -464,7 +464,7 @@ De pronto la versión anciana y holográfica de Mike sonrío de medio lado, luc�
 
 Los sueños extraños de Mike desaparecieron con él, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
 
-![firstpic2](\img\posts\mike2.jpg)
+![firstpic2](\img\posts\Mike2.jpg)
 
 
 

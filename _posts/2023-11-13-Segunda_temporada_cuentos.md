@@ -238,6 +238,9 @@ Final de la parte 1.
 
 ## <a id="paradoja-inmortal"></a>La paradoja inmortal
 
+![firstpic1](\img\posts\mike1.jpg)
+
+
 La paradoja inmortal.
 
 -Arruinaron el juego Mariana, ese fue el problema, con el internet y las redes sociales. Todo cambió radicalmente y nadie tenía la cabeza preparada para eso, tu fuiste víctima de ese cambio. - Mike le acomodó el cabello a Mariana detrás de la oreja mientras pronunciaba esas palabras.
@@ -402,7 +405,7 @@ Ninguno pudo dormir bien esa noche, un rayo de sol iluminó la oscuridad de la v
 
 Siguieron a los lobos por 30 minutos hasta llegar a un punto dónde se reveló ante ellos una imagen cruel. Había 2 lobeznos de aproximadamente 6 meses atrapados en trampas hechas por humanos. los lobos desfilaron dibujando un círculo en torno a los lobeznos y su intención se hizo evidente. Mike dudó por unos instantes y luego siguiendo una vez más su instinto, caminó lentamente hasta las trampas y con el corazón intentando salir de su pecho, liberó a los lobeznos, que corrieron hacia la manada para ponerse a salvo. El lobo de ojos azules inclinó la cabeza como haciendo una reverencia, luego lanzó un largo aullido y la manada se puso en marcha. 
 
-[Wonder-Victor Ruiz](hhttps://open.spotify.com/intl-es/track/6pB2YpyooKBao791pVNCtw?si=0fa50bae7f3644d8)
+[Territory-The blaze](https://open.spotify.com/intl-es/track/2W3EgJst61RLZtPPm3EQim?si=01d64f2058d5472d)
 
 Esa noche mientras descansaban en el pueblo de Kuusamo, comenzó a soñar nuevamente que era el abuelo de dos tipos jóvenes que lo interrumpían todo el día para preguntarle cosas que le resultaban obvias, no entendía el punto de todo aquello, se removió para acomodar sus cobijas pues el frío era inclemente. Comenzó a soñar que cruzaba otra vez el río Vuoksi pero esta vez era diferente, no podía sentir los latidos de su corazón, ni el agua helada en los pies, no sentía miedo, sólo observaba toda la escena como en una película. Entendió que se encontraba en la frontera entre la vida y la muerte, la vigilia en el sueño, pudo ver una versión anciana de sí mismo de un color azul pálido caminando hacia él, tenía el estilo de un holograma. La versión  viva y no viva de Mike hablaron al mismo tiempo: “¿Cómo es posible?. 
 
@@ -445,7 +448,9 @@ Su versión viva tenía un montón de preguntas, no intentaba despertar en absol
 
 -Entiendo, lo sospechaba, los mejores recuerdos son con ella o haciendo alguna estupidez en la naturaleza que pusiera en peligro tu vida, lo que me lleva a preguntarme, ¿Qué es lo que le da un sentido profundo a la existencia? ¿Por qué recordamos esos momentos de manera tan intensa y no otros? ¿Qué llena el corazón de un hombre?, ¿Qué podría haberte llenado a tí?.
 
-Ambos giraron sus miradas a una de las pantallas que ahora mostraba a un niño corriendo entre una vegetación profunda, era una de las primeras aventuras de Mike, vio a un grupo de niños que intentaban quitarle la vida a un perro, y justo cuando el bat de carbono usado por el niño más grande iba a impactar la cabeza del cachorro, Mike interpuso su antebrazo derecho, ambos sintieron el dolor como si estuvieran viviendo ese preciso instante, la muñeca se desvió de inmediato y lucía completamente deforme, algunos de los niños ayudaron a Mike a ir dónde su madre, llegó con ganas de llorar, pero sentía el placer de haber hecho lo correcto, de haber salvado la vida a un animal. En otras pantallas se podían observar momentos como el nacimiento de Luciano y Marco, el día del matrimonio con Mariana, los primeros pasos de sus 2 hijos, la primera vez que salvó una vida y la última, las cifras escandalosas de los medicamentos que descubrió para tratar el cáncer, una vida prolífica, llena de satisfacciones indelebles.
+Ambos giraron sus miradas a una de las pantallas que ahora mostraba a un niño corriendo entre una vegetación profunda, era una de las primeras aventuras de Mike, vio a un grupo de niños que intentaban quitarle la vida a un perro, y justo cuando el bat de carbono usado por el niño más grande iba a impactar la cabeza del cachorro, Mike interpuso su antebrazo derecho, ambos sintieron el dolor como si estuvieran viviendo ese preciso instante. La muñeca se desvió de inmediato y lucía completamente deforme, algunos de los niños ayudaron a Mike a ir dónde su madre. Llegó con ganas de llorar, pero sentía el placer de haber hecho lo correcto, de haber salvado la vida a un animal. 
+
+En otras pantallas se podían observar momentos como el nacimiento de Luciano y Marco, el día del matrimonio con Mariana, los primeros pasos de sus 2 hijos, la primera vez que salvó una vida y la última, las cifras escandalosas de los medicamentos que descubrió para tratar el cáncer, una vida prolífica, llena de satisfacciones indelebles.
 
 -Creo que lo entiendo, los momentos que visitas, los que yo recuerdo cuando me tomo unas copas, tienen algo en común, todas fueron aventuras que dan un sentido más profundo a la vida, todos fueron momentos clave, aprendizajes, emociones intensas. Recordamos con intensidad el dolor, pues es una realidad que no podemos combatir y tal vez sea una experiencia cuya huella sólo sea superada por el amor y las buenas obras, es todo lo que da sentido a la vida de un hombre al final.
 
@@ -455,8 +460,11 @@ La versión viva de Mike sintió un nudo en el estómago luego de conocer la rea
 
 -¿Crees qué si hago las cosas diferente, sea posible…cambiar el futuro?.
 
-De pronto la versión anciana y holográfica de Mike comenzó a desvanecerse hasta desaparecer. Los sueños extraños de Mike desaparecieron con él, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
+De pronto la versión anciana y holográfica de Mike sonrío de medio lado, lucía tranquilo y satisfecho, luego comenzó a desvanecerse hasta desaparecer. 
 
+Los sueños extraños de Mike desaparecieron con él, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
+
+![firstpic2](\img\posts\mike2.jpg)
 
 
 

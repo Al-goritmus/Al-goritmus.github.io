@@ -10,6 +10,7 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 
 
 * [Franco, el último iluminado](#franco-iluminado)
+* [Paradoja inmortal](#paradoja-inmortal)
 
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado
@@ -233,6 +234,234 @@ En ese momento Franco sintió una necesidad poderosa de ceder el control a Giaco
 Final de la parte 1.
 
 ![firstpic](\img\posts\machine_distopia.jpg)
+
+
+## <a id="paradoja-inmortal"></a>La paradoja inmortal
+
+La paradoja inmortal.
+
+-Arruinaron el juego Mariana, ese fue el problema, con el internet y las redes sociales. Todo cambió radicalmente y nadie tenía la cabeza preparada para eso, tu fuiste víctima de ese cambio. - Mike le acomodó el cabello a Mariana detrás de la oreja mientras pronunciaba esas palabras.
+
+-Lo recuerdo bien, fueron tiempos extraños, nada salía de acuerdo a lo que se planeaba, ¿crees que por eso decidimos abandonar esos espacios?. -Mariana tenía la voz dulce y maternal.
+
+-¡Obviamente!, quien quiere vivir en un mundo así de aburrido, no hay profundidad en esos espacios, porque muy pocas personas se dedicaron a mostrar su realidad y entonces súbitamente la gente se encontró inmersa en un mundo de fantasías, nadie veía la realidad de nadie, solo la fantasía, la proyección y no hablo de la fantasía genuina, más bien la que cada quien creía que le haría más atractivo.
+
+-¿Pero por qué invertiría todo el mundo en eso?-Mariana miraba al lado izquierdo tratando de encontrar las palabras correctas - ¿No crees que de pronto, el mundo estaba siendo infeliz por ser tan deshonesto?.
+
+-Ser deshonesto es una fuente de infelicidad pero tal vez no la más importante…hay algo más que debes aprender y es que… -El bar de aspecto moderno dónde compartían comenzó a deshacerse de a poco y la imagen se tornó borrosa hasta dibujarse un cuarto de máquinas típico de escena futurista.
+
+La voz de Mike cambió a una versión robotizada y monótona - ¿Qué ocurre? - Aunque su voz era artificial, se notaba un tono de impaciencia.
+
+En la habitación había un hombre mirando a un holograma con el cuerpo de Mike y la ropa que había llevado a su cita con Mariana, la habitación era el hardware de una computadora que albergaba la mente de alguien que tuvo la idea de trascender al cargar su conciencia a un espacio virtual. Mike era la consciencia digitalizada de alguien que había dejado de vivir 80 años en el pasado.
+
+-Mike, hay unos de sus descendientes que quieren verlo para consultarle algo, son los dos jóvenes que serían nietos de sus nietos. -Dijo el mayordomo de Mike.
+
+-¡Que entren, no me gusta hacer esperar a mi familia.-El holograma de Mike cambió su atuendo por uno deportivo.
+
+Por la puerta entraron dos jóvenes, uno se llamaba Julio tenía unos 20 años y llevaba una pinta típica del año 1945, el año que terminó la segunda guerra mundial, su ropa iba compuesta de una camisa blanca, corbata, un jumper café de punto redondo y pantalón negro, el cabello peinado hacia atrás, configuraba la perfecta imitación de un académico de oxford de 200 años atrás. El otro, Sean, tenía 30 años, lucía más atlético y traía la pinta clásica de Marty McFly en Volver al futuro, chaqueta de cuero y aspecto rebelde. 
+
+-¡Abuelo Mike! Es un placer verte,¿te interrumpimos?- Sean era jovial y sonaba medio de broma todo el tiempo.
+
+-De hecho sí, par de entrometidos, estaba repasando el día que conocí a la abuela de su abuela y creo que ya entiendo en dónde fallé.-El holograma de Mike se encogió de hombros como admitiendo un error.
+
+-¿Por qué dices que fallaste? ¿Acaso no te casaste con ella? - Julio hablaba despacio, como reflexionando cada palabra, su ropa hacía juego con su personalidad. 
+
+-Así es, ahí fue mi error. Me casé joven y tuve hijos, y por eso ahora estoy aquí, recibiendo a mis bisnietos.
+
+Hubo una pausa y todos se echaron a reír.
+
+-¿Qué preguntas traen hoy mis descendientes menos ingratos? - Mike sonaba cómico por algún ajuste de la máquina que le daba vida a su consciencia. 
+
+- Me gustaría tener más éxito con las mujeres- dijo Sean, desviando la mirada, claramente incómodo. 
+
+-y yo necesito mejorar mi disciplina - Dijo Julio con el mentón bien arriba y la mirada altiva que lo caracterizaba.- Pensé que tu con el galardón que posees, debes saber todo sobre la disciplina.
+
+-Creo que han confundido sus preguntas. Sean, tú eres el rebelde; deberías enfocarte en la disciplina. Y Julio, el estudioso, debería interesarse más en las relaciones. ¿Por qué quieren mejorar en lo que ya son buenos?
+
+Sean tomó la palabra -Si quisiera más disciplina le pediría a Julio unos tips de concentración y enfoque, ¿pero qué podría preguntarle sobre las mujeres? - Dijo mientras se acomodaba el peinado para seguir luciendo atractivo.
+
+-Te sorprenderías - Replicó Mike - contrario a lo que podrías pensar, Julio está enfocado en su futuro y eso le ha dado mejor resultado con lo que a tí más te importa. 
+
+Julio se removió incómodo, se hizo evidente que no quería entrar en esa discusión con Sean. Mike encontró cómica la situación y decidió continuar.
+
+-Pero Julio tiene cosas que aprender de ti Sean, tu sabes tomarte tu tiempo y relajarte, sabes perseguir tus instintos, Julio vive pensando en hacer solamente lo que cree que lo hará feliz y rico, vive para intereses externos a él, no sé porque me buscan si todo lo que les falta es justo lo que el otro tiene, para ser hermanos, les falta reconocerse un poco más. Ahora continuaré en mis sueños, nos vemos en una semana para ver cómo les fue aprendiendo a ser como el otro.
+
+Julio y Sean desaparecieron literalmente de la vista de Mike. 
+
+[canción Tuyo-Rodrigo Amarante](https://open.spotify.com/intl-es/track/6g2BiiVQqY5v1S4HIrM54F?si=434ac01aa1e442c0)
+
+Se dibujó el mando de una avioneta que volaba a pocos metros del agua de un enorme río, el agua era oscura y a ambos lados había montones de vegetación espesa. Sonaba una canción en un equipo de sonido improvisado, Tuyo de Rodrigo Amarante, la vista era un espectáculo y el calor era compensado por el pago de apreciar la espesura del bosque, el peligro de caer en el agua y quedar perdido en ningún lugar, todo este escenario era excesivamente estimulante para Mike, era embriagante, era estar vivo, era 2028 y el calentamiento global ya hacía de las suyas, pero el mundo aún era un lugar lindo para vivir. La canción comenzaba a hablar:”Soy el fuego que arde tu piel, soy el agua que mata tu sed, el castillo la torre yo soy, la espada que guarda el caudal…”.  El río se acercaba peligrosamente a la avioneta, ¿o era al revés? y Mike tuvo la sensación de que estaría bien morir en un lugar así, viviendo así, quería saltar y nadar con los delfines rosados y ver una anaconda, quería devorar la selva. La misión era clara: robar varios especímenes de plantas que se sospechaba iban a ser claves para encontrar nuevos tratamientos para el cáncer, bastaba con escoger las correctas y el mundo se haría un lugar mejor, había investigado las rutas del narcotráfico Colombiano y Brasilero para encontrar la manera de viajar sin ser detectado y resultó que la mejor manera era serpentear sobre el amazonas a escasos 4 o 5 metros del agua.
+
+-¿Estamos cerca amigo? - Mike hablaba un español perfecto pues su padre era Uruguayo y decidió llamarlo Mike en honor a un boxeador famoso de finales del siglo 20. 
+
+-ya estamos llegando parce, pero no se me vaya a asustar que por aquí hay guerrilleros y varios grupos armados, además que la armada colombiana da vueltica a veces para buscar a quien darle de baja.
+
+-¿y cuantos tiros te meten por sacar plantas de la selva? - Mike bromeaba con el piloto mientras destapaba una cerveza.
+
+-Aquí nunca ha venido nadie a hacer eso, usted es el primero, cuando lleguemos a la pista se esconde en ese contenedor de atrás para que no lo vayan a pillar.
+
+Llegaron a la pista y Mike hizo todo como se lo explicaron, logró escabullirse lejos de la finca que estaba asociada a la pista, pagó una buena suma de dinero por el anonimato. Tardó 10 días en reunir los especímenes que necesitaba, vio toda clase de animales en la selva pero ninguno se metió con él, tuvo la ilusión de que sabían que no iba a hacer lo mismo que los militantes de la zona o que tal vez ya le tenían miedo a las personas. Se dejó embriagar de todos esos recuerdos, se sumergió en el Amazonas un rato porque no pudo hacerlo cuando vivía.
+
+Avanzó 10 años al futuro, la previa de la gala de los premios nobel, ese año le tocaba a Mike el de medicina porque logró alterar con IA las moléculas bioactivas de las plantas amazónicas hasta transformarlas en 3 poderosas moléculas quimioterápicas y el resultado fue un descenso evidente en la mortalidad por 6 tipos de cáncer. Pero no venía a esta época por el condenado premio, venía para pasar un rato con Martín, uno de sus mejores amigos, tenía preguntas que hacerle a este recuerdo, más tarde sería el turno de Olivia, una doctora española, la oncóloga que acogió primero sus propuestas farmacéuticas. 
+
+-Martín, hay algo que me tiene pensando últimamente, tomamos solo 20 especímenes, de una zona muy específica y logramos obtener 3 moléculas importantísimas, ¿no crees que debería volver al amazonas y traer más plantas? - Mike tenía un puro en la mano y saboreaba el tabaco de la habana en su boca mientras observaba con cuidado a Martín. 
+
+-Puede ser, es posible, no lo sé, sería mucha coincidencia que hubieras aterrizado justo en dónde había las únicas 3 moléculas útiles de semejante selva, pero ya no tienes 30 años la última vez te metieron un disparo en la pierna cuando intentabas regresar, ¿crees que vale la pena volver? ¿No recibes hoy un puto nobel?. -Martín se rascaba la cabeza confundido intentando entender a Mike. 
+
+-No es por el premio, es cambiar el futuro de tanta gente, ¿no te habrás olvidado de la causa de muerte de mi madre, Martín o sí? ¿Sigues consumiendo opio? Pensé que lo habías dejado. - Mike sonaba genuinamente preocupado por su amigo, aunque la respuesta tuvo un poco de venganza.
+
+-No he vuelto a caer en el opio, y traerlo a colación hoy, con la ansiedad de esta ceremonia, no me ayuda en lo más mínimo. ¿No has probado el vino de Córdoba que te traje?.
+
+-Lo voy a destapar con Olivia, quiero probarlo en un momento especial.
+
+-¿Sigues consumiendo mujeres? Pensé que ya habrías dejado esa adicción.
+
+-La superé pero, Olivia es diferente. - Mike levantó un dedo de la mano derecha para puntualizar la diferencia invisible.
+
+-Si me pagaran un Euro por cada vez que te escucho decir eso, sería más rico que tú luego de recibir el premio!.
+
+Se echaron a reír. Luego Mike pudo ver en plano secuencia la llegada de Olivia, ella tenía los ojos oscuros y la mirada aguda, era su científica favorita y la única persona que había podido querer luego de dejar a la madre de sus hijos, Mariana. Olivia tenía un enorme parecido con Olivia Munn y para Mike fue sencillo perderse en su mirada, más que eso: fue inevitable. 
+
+Vienna 2024.
+
+-¿Para qué quieres ir al Amazonas? - Olivia miraba fijamente a Mike con ojos impenetrables que parecían atravesar la materia a su paso.
+
+-Bioprospección, quiero ir a buscar especies de plantas cuyas propiedades farmacéuticas no sean conocidas, de paso me gustaría ver ese lugar tan maravilloso y recóndito, te pediría que vayas conmigo pero es un viaje peligroso - Mike apretó los músculos de los brazos tratando de impresionar a la científica brillante que tenía al frente, poco entendía sobre lo que una mujer como Olivia iba a encontrar atractivo en él. 
+
+-Vas a arriesgar tu vida para conseguir unas plantas de las que no sabes nada, no eres botánico, no sabes de ecología, sólo es un médico que frustró su camino en la medicina porque temía no hacerlo perfecto. - Olivia dio un sorbo al café caliente que sostenía en la mano derecha, sin dejar de mirar a Mike con una mezcla de reprobación y curiosidad.-Eres un niño de 30 años.
+
+-Sólo busco vivir de acuerdo a mis sueños, no es una locura en vano, imagina cuanta gente podríamos ayudar si el proyecto es exitoso, imagina el mundo que podríamos comenzar a construir cuando demostremos el origen de estas moléculas - Mike sonaba entusiasmado defendiendo su idea y de paso su integridad mental.
+
+Estaban en el café central de Viena, y el quinteto de tango de Viena interpretaba: el último café, demasiado para ser coincidencia. Mike esperaba que la música por la que había pagado, le ayudara a negociar con Olivia para obtener su apoyo y asesoría en el proyecto Nukak como había decidido llamarlo esa mañana mientras se duchaba.
+
+-Supongamos que te ayudo, ¿qué beneficio obtengo?, estás acostumbrado a obtener ayuda de las personas al seducirlos con tus sueños y fantasía y no me interesa ni el reconocimiento ni el dinero. Quiero tener tus hallazgos de primera mano, no quiero a otros científicos metiendo las narices en esto y sobre todo no quiero a otras de tus novias interrumpiendo mi trabajo cuando comencemos a analizar las muestras, si esto es como la artemisina quiero que compartas la cima conmigo al final. - Olivia sonaba decidida y categórica al establecer sus términos, su mirada brillaba irradiando tenacidad pero había algo más en ella, ligeros matices de lujuria, un deseo febril.
+
+..
+
+[canción Summertime-Ella Fitzgerald](https://open.spotify.com/intl-es/track/2gNjmvuQiEd2z9SqyYi8HH?si=0631ce3cf5e54c7b)
+
+-Eres mi estudiante más brillante Mike, encuentro fascinantes tus ideas de investigación pero…¿puedes resolver este problema?- Olivia se abría una blusa blanca de tipo ejecutivo y dejaba entrever lentamente una lencería elegante de color negro.
+
+-Profesora, yo puedo resolver cualquier clase de problema, soy famoso entre mis compañeros por eso, especialmente entre mis compañeras. - Mike trataba de seguir el juego a Olivia y sentía acelerar los latidos de su corazón. 
+
+El aire estaba cargado con las notas de Summertime de Ella Fitzgerald. La habitación del hotel estaba decorada al estilo clásico y era atravesada por haces de luz que impregnaban todo de rojo atardecer, había una enorme lámpara de cristal que vibraba con las notas de la la trompeta de Louis Armstrong o eso le pareció ver a Mike, que ya experimentaba efectos de una pequeña dosis de psilocibina. Olivia continuó el lento ritual de enloquecer a Mike con cada centímetro de piel que exponía, lo hacía con elegancia y destreza, quería dejar claro quién tenía el control de la situación, se dio media vuelta y comenzó a levantar su falda lentamente, exponiendo un liguero de 6 correas. Mike pudo sentir una ola de calor que subía por su espalda y teñía sus orejas, el corazón iba más rápido, respiraba profundo y trataba de mantener la compostura, Olivia se alejó poniendo un tacón delante del otro mientras lo miraba de reojo, quería tener el aspecto de un ciervo pero su mirada era la de un depredador surtido de encantos y colores, Mike sintió un deseo febril de poseerla y hacerla completamente suya, se puso de pie y caminó despacio hasta poder oler el perfume de Olivia, embriagante y dulce aroma a cedro D’iris de Prada, ella intentó acelerar el paso sin éxito pues rápidamente se encontró rodeada de los brazos de Mike, que embriagado respiró sobre el cuello de Olivia y la llevó empujándola suavemente hacia un sofá tapizado de tela color salmón - “Espero que no se arrepienta de esto profesora, tampoco quiero que se vuelva adicta a esto” - Olivia suspiró profundamente y Mike vio la oportunidad perfecta para traerla a su juego, para ese momento sonaba Almost Blue de Chet Baker - “Como la vea suspirando otra vez me voy a ver obligado a tomarla con fuerza, así que le iré diciendo algunas cosas desviadas al oído, pero no lo olvide “profesora”, tiene prohibido suspirar por deseo o placer y si lo hace, voy a saber exactamente qué es lo que más la pone, todo lo que me muestre será utilizado en su contra” - Olivia contuvo el aire  pero fracasó rápidamente en el intento de negar su naturalez.
+
+[canción Almost Blue-Chet Baker](https://open.spotify.com/intl-es/track/2TvvypFABr65clA6O68qfn?si=060a95dc74aa4713)
+
+No era sólo la belleza física de Olivia, era la mirada, las palabras, las ideas, era todo sobre ella, su manera de existir y de sentir tan única, tan singular e irreverente. Mike no encontraba palabras para definir a Olivia, sabía que era la cuarta vez en su vida que experimentaba el amor y esta vez parecía ser algo completamente diferente a las anteriores. Olivia era todo lo que habría querido tener a su lado, pero no estaba en los planes de ella, ceder ante la tentación de la compañía de un loco que se iba a lanzar a una misión suicida al trópico, y algo le decía que no era la primera vez que Mike haría algo como eso.
+
+Mike se quedó suspendido entre sus mejores recuerdos, disfrutando el recuerdo del aroma de Olivia, el sabor de la gloria que probó días más tarde al recibir el máximo galardón de la ciencia, ahora todas esas personas estaban muertas, incluída su querida Olivia, poco quedaba desde mundo más que viejas costumbres y edificios roñosos en ciudades abandonadas. 
+
+-¡Abuelo Mike! - la voz de Sean interrumpió el ensueño lujurioso de la consciencia digital que habitaba la gran computadora que daba vida a Mike. Cabe señalar que Mike también estaba muerto y todos sus recuerdos habían sido generados por alguien que había fallecido más de 80 años en el pasado.
+
+-No han pasado ni dos horas muchacho,¿para qué vienes ahora?-La voz robótica de Mike sonaba de alguna manera exasperada. 
+
+-No entiendo qué tengo que hacer abuelo, en serio me esfuerzo, lo intento, pero no se me da fácil, no es como la clase de computación dónde puedo resolver todo sin mucho esfuerzo.
+
+-Ahí está el problema: 'sin mucho esfuerzo'. Estás tratando esto como si fuera un problema informático, pero no lo es. Primero debes entenderte a ti mismo antes de abordar esto.
+
+-¿Resolverme primero? umm ¿y como estás tan seguro de que lo que te funcionó hace 100 años podría funcionar hoy? ¿No crees que las reglas han cambiado? Hoy en día todo volvió a las costumbres sexuales de la época victorena y la gente cree que eso es mejor que en tus tiempos dónde había más libertad - Sean se rascaba la cabeza como tratando de entender mecánica cuántica.
+
+-Se dice época victoriana y si no te resistieras a usar el asistente cognitivo que te implantaron, podrías andar por el mundo sin nombrar mal la mitad de las cosas que hablas.-Mike se divertía a costa de Sean mientras navegaba el recuerdo un paisaje de los Alpes que visitó en 2030.
+
+-Para tí es fácil decir que use la asistencia IA pues eres un abuelo robot, yo quiero ganarme las cosas por mi cuenta, crecer usando mi cerebro que no será el mejor pero se esfuerza. -Sean posaba orgulloso mientras admitía sus limitaciones, se acomodó la chaqueta con suficiencia antes de agachar la cabeza y continuar - ¿Por qué crees que son iguales que en tus tiempos?
+
+-Porque 2 mil años de civilización no cambian a los cerebros que evolucionaron durante millones de años en el áfrica, mira muchacho, los entes femeninos de los que tanto hablas, buscan fundamentalmente como compañía a alguien que disfruta de solidez mental, una idea clara sobre su propia vida y un camino decidido, todo eso era útil para sobrevivir en las periferias del monte Kilimanjaro, no puedes esperar que se reprograme toda la genética cada que a la cultura le da por cambiar. 
+
+Sean destapó una lata de cerveza y se recostó en la pared-¿Entonces qué sugieres que haga? ¿Defino mis metas, trazo mi camino y ya?
+
+-Vive tu vida, es la única que vas a tener, buscate un par de aventuras, conoce el mundo, habla con otras personas, sube una montaña, lánzate al océano, la mayor parte de mi vida adulta no pude hacer nada de eso porque el mundo estaba demasiado contaminado, pero tienes el privilegio de un mundo renovado. Luego te preocupas por seducir a quienes no tienen en principio, ninguna obligación para prestarte atención, vive tu vida. Hasta pronto.
+
+Mike apagó la interfaz de interacción con el mundo externo y decidió navegar a uno de sus mejores recuerdos. 
+
+Escandinavia 2038.
+
+[Helvengen-Ragnarok](https://open.spotify.com/intl-es/track/6YBmtGvWsFq05h1L6oUcVC?si=65238e7f94e44eb5)
+
+La gélida brisa nórdica susurraba entre los pinos, un presagio oscuro se cernía sobre Mike y su compañero de viaje Leandro, dos almas errantes en la vasta tundra finlandesa. Se encontraban allí para capturar auroras boreales y analizar patrones de radiación solar.
+
+-Es un oso Mike, no abras la carpa - Leandro sonaba aterrado e intentaba cargar un arma sónica para aturdir al animal. - Espera a que cargue el arma y tápate los oídos a mi señal.
+
+Mike, siempre impulsivo y desafiante ante el peligro, no dudó en abrir la carpa. Con un gesto audaz, lanzó una linterna flotante al aire, desafiando la oscuridad helada del norte de Finlandia con un halo de luz.,Lo que se encontró al salir le puso los pelos de punta, la oscuridad se llenó de ojos amarillos, un escalofrío le recorrió la espalda a Mike, se encontraban rodeados por una veintena de lobos suecos hambrientos, Leandro salió de la tienda para luego quedarse pálido e indeciso de en qué dirección disparar el arma sónica. -”Mike, ¿Qué hacemos?”. - Mike escuchó a Leandro dar pasos hacia atrás cada vez más rápido, como quien se prepara para correr y le habló fuerte y claro: “¡No corras!, si corres automáticamente eres una presa, camina lento hacia la tienda y saca las bolsas de carne descongelada, yo me quedo aquí a proteger la entrada, les vamos a dar carne cómo una ofrenda”. Leandro caminó en reversa hacia la tienda y volvió un minuto más tarde con la carne. El más grande de los lobos se acercaba peligrosamente a Mike mientras gruñía exhibiendo enormes caninos en su boca, Mike sólo atinó a lanzarle una patada de advertencia y un fuerte grito, con lo cual el animal dio un rodeo y siguió caminando con el paso de acecho típico de su especie. 
+
+Leandro abrió una de las bolsas de carne y se la arrojó al que parecía ser el alfa del grupo, tenía ojos azules que revelaron su color cuando se acercó a la carne con cautela. Varios lobos corrieron a olfatear y lamer la carne, comenzó un juego de advertencias entre ellos para tratar de hacerse con el botín. Otro lobo se acercó a Mike como pidiendo su parte, rugía con fiereza y exhibía enormes dientes teñidos de sangre de algún animal o persona, de manera inadvertida el lobo saltó y mordió el brazo izquierdo de Mike, que le propinó un golpe con la linterna en el hocico para ahuyentarlo, En el instante en que el lobo mordió su brazo, Mike experimentó una visión fugaz: una colonia espacial surcaba el interior de una nebulosa púrpura. La realidad lo golpeó tan fuerte como su mano al hocico del lobo, devolviéndole al frío y peligroso presente.. El animal emitió un chillido y tomó  una distancia prudente, los otros que estaban a punto de lanzarse a Mike hicieron lo propio.En un momento de tensa calma, Leandro lanzó con precisión un trozo de carne que sobrevoló el hombro derecho de Mike, aterrizando a unos tres metros. Los lobos, cautelosos pero hambrientos, se abalanzaron sobre el festín, permitiendo a los hombres un respiro momentáneo. Procedieron a repartir el resto a medida que los animales se tornaban más calmados y para cuando terminaron decidieron regresar al interior de la tienda, no sin antes disparar el arma sónica para ahuyentar a la jauría.
+
+Ninguno pudo dormir bien esa noche, un rayo de sol iluminó la oscuridad de la vista de Mike y lo trajo de vuelta al mundo,  tuvo un sueño rarísimo dónde le daba consejos a un par de pendejos que lo llamaban abuelo. Se levantó de golpe y abrió un pequeño pedazo de la tienda para echar un vistazo afuera, despertó a Leandro y ambos salieron para desarmar rápidamente la tienda y continuar la expedición. 30 minutos luego de caminar, Leandro giró su cabeza y le advirtió de la persecución. -”Mike nos están siguiendo carajo. Dime que ahora si podemos correr ``.- Mike dio un resoplido y respondió - “Si corremos estamos muertos, ¿no sabes nada sobre los lobos? Su patrón de caza exige que la presa intente huir, la mayoría de ataques se cancelan si la presa no muestra miedo ni huye, si comenzamos a huir nos comen vivos”. Aceleraron el paso instintivamente pese a las advertencias de Mike, si los acorralaban iban a tener poco chance de salir vivos de la tundra. 1 hora más tarde se detuvieron frente a un río que según el mapa, era el río Vuoksi, una línea de agua helada que en ese momento dividía al mundo en dos. Habían perdido de vista a los lobos. Intentaron cruzar el río y a mitad de camino comenzó la peor parte.
+
+-Leandro mira atrás y dime que no hay media manada de ese lado del río.- Mike podía sentir su corazón latiendo con fuerza y se preparaba para lo peor. 
+
+-Hay 10 del lado que dejamos y 10 más al otro lado, mierda nos rodearon, ¡nos rodearon!. - la desesperación en la voz de Leandro sólo le impedía a Mike pensar claramente. 
+
+-No tenemos opción, río abajo la corriente aumenta y hay rocas, ¡río arriba la corriente no nos deja avanzar! Tenemos que cruzar y ahuyentar a los que nos enfrenten, si herimos a uno o dos es posible que desistan de atacarnos.- Uno de los lobos miró fijamente a Mike con profundos ojos azules mientras agachaba la cabeza para olfatear la nieve, luego un segundo lobo levantó la cabeza y comenzó a aullar, uno a uno todos se unieron a un aullido en coro, a Mike se le erizaba la piel escuchando los aullidos de la manada, de pronto comenzó a sentir una emoción diferente, el miedo en una sensación parecida al júbilo o al alivio, de pronto recordó algo importante.
+
+-Leandro, los lobos no suelen aullar en este punto de la caza, este comportamiento es inusual, suelen aullar para marcar el territorio o para iniciar la cacería, pero no en este punto, hay algo extraño en esto.- Pasaron unos 30 minutos inmóviles y lentamente el caudal del río comenzó a aumentar, Mike entendió que era hora de tomar una decisión, el lobo de ojos azules lo miraba fijamente pero sin la agresividad de la noche anterior, parecía interesado en Mike. Cuando el caudal comenzó a amenazar con hacerlos caer y arrastrarlos, ambos comenzaron a caminar hacia la orilla dónde estaba el lobo alfa, y para cuando Mike estaba a un metro de la orilla, la corriente le hizo perder el equilibrio con una brusca caída contra las rocas del río lo que le ocasionó un fuerte golpe en las costillas, extendió su mano izquierda y pudo sentir la mordida del lobo sujetando su muñeca, Leandro se sujetaba del pie derecho de Mike, el lobo alfa comenzó a tirar de la muñeca de mike, luego otros lobos se sumaron y ambos pensaron que era el final, los lobos comenzaron a tirar de la manga de su chaqueta hasta traerlos a la orilla, para cuando ambos recuperaron la calma se encontraban en la orilla y los lobos los miraban atentamente, de pronto uno de los lobos se dio la vuelta y emprendió la marcha, uno a uno los siguieron hasta que el lobo de ojos azules emprendió la marcha de último y volteando a mirar a Mike en 3 ocasiones con pequeñas pausas, cómo esperando algo. Mike se puso de pie y movido por su instinto comenzó a seguir a la manada.
+
+-¿Puedo saber qué te está pasando por la cabeza, Mike? - Leandro pasó del alivio a la preocupación mientras se incorporaba indeciso sobre si seguir a Mike o no.
+
+-Creo que quieren mostrarnos algo, sigueme y prepara el arma sónica para ahuyentarlos en caso que nos ataquen. 
+
+Siguieron a los lobos por 30 minutos hasta llegar a un punto dónde se reveló ante ellos una imagen cruel. Había 2 lobeznos de aproximadamente 6 meses atrapados en trampas hechas por humanos. los lobos desfilaron dibujando un círculo en torno a los lobeznos y su intención se hizo evidente. Mike dudó por unos instantes y luego siguiendo una vez más su instinto, caminó lentamente hasta las trampas y con el corazón intentando salir de su pecho, liberó a los lobeznos, que corrieron hacia la manada para ponerse a salvo. El lobo de ojos azules inclinó la cabeza como haciendo una reverencia, luego lanzó un largo aullido y la manada se puso en marcha. 
+
+Esa noche mientras descansaban en el pueblo de Kuusamo, comenzó a soñar nuevamente que era el abuelo de dos tipos jóvenes que lo interrumpían todo el día para preguntarle cosas que le resultaban obvias, no entendía el punto de todo aquello, se removió para acomodar sus cobijas pues el frío era inclemente. Comenzó a soñar que cruzaba otra vez el río Vuoksi pero esta vez era diferente, no podía sentir los latidos de su corazón, ni el agua helada en los pies, no sentía miedo, sólo observaba toda la escena como en una película. Entendió que se encontraba en la frontera entre la vida y la muerte, la vigilia en el sueño, pudo ver una versión anciana de sí mismo de un color azul pálido caminando hacia él, tenía el estilo de un holograma. La versión  viva y no viva de Mike hablaron al mismo tiempo: “¿Cómo es posible?. 
+
+[Wonder-Victor Ruiz](hhttps://open.spotify.com/intl-es/track/6pB2YpyooKBao791pVNCtw?si=0fa50bae7f3644d8)
+
+Se encontraban en una habitación completamente oscura, había pantallas antiguas dónde se podía ver muchos momentos clave en la vida de Mike, en uno de ellos su madre lo abrazaba y lo consolaba luego de sufrir su primera fractura. Ambos miraron en todas direcciones tratando de entender en dónde estaban.
+
+-¿Quién eres? - El Mike de carne y hueso se removía inquieto en la cama.
+
+-Soy tú, unos cuantos años más tarde, pero no lo entiendo, se supone que estoy visitando un recuerdo. No deberíamos poder hablar, hay algo mal en el programa - El Mike viejo del holograma intentaba dar una explicación racional a lo que estaba ocurriendo.
+
+-¿Cómo proyectas un holograma de tu cuerpo de esta manera?
+
+-No tengo cuerpo, soy una consciencia digital, soy una versión digital de tí, poseo todos tus recuerdos…puede que seas un virus. - La consciencia digital de Mike intentaba salir de la simulación pues la situación ya era demasiado confusa.
+
+Su versión viva tenía un montón de preguntas, no intentaba despertar en absoluto, ya había soñado con esa versión robótica de su voz dando consejos a un par de jóvenes inexpertos y quería explicaciones. 
+
+-He soñado que tengo tu voz, hablo con dos tipos jóvenes que se visten a la antigua, pero de diferentes épocas, ¿qué significa eso?.
+
+-Espera, ¿Cuántas veces lo has soñado? - La voz robótica esbozaba curiosidad y había dejado de intentar escapar al encuentro.
+
+-Más de las que quisiera, hay un patrón, ocurre todas las noches memorables de mi vida, los días inolvidables, los días que creo voy a recordar hasta mi muerte y me asusta pero pienso que podría tratarse de una realidad paralela.
+
+-No es una realidad paralela - La voz robótica sonaba ahora ligeramente paternal - Es el futuro, en el lugar y momento que habito, ya estás muerto, soy todo lo que queda y los dos muchachos son nietos de tus nietos, son descendientes de Lucio, el hijo mayor que tuviste con Mariana y vienen a mi en busca de sabiduría, no me siento tan sabio como para dar consejo, no hay hombre que sea tan viejo, solo viví una vida, la vida que estás viviendo.
+
+-Carajo, las posibilidades son infinitas…si esto fuera real, podría tratarse de una curvatura cerrada tipo tiempo como las que planteó Einstein, pero esto plantearía problemas serios con la causalidad, podría tratarse de una realidad simulada en la que universos y versiones de todas mis etapas y edades sean reales al mismo tiempo. ¿Sabes si en tu tiempo ya se esclareció algo de esto?.
+
+-Estamos en el mismo punto en realidad, hay proyectos interesantes como la colonia de Marte, el gobierno por IA, la expedición a las lunas de saturno y la construcción de la primera esfera de Dyson, pero todo esto es ingeniería Mike, la ciencia llegó a un punto en dónde solo la IA puede entenderla y existe mucha consternación sobre si es prudente continuar con una ciencia que solo pueden entender las máquinas.
+
+-Pero tú eres una máquina, ¿No?.
+
+-No precisamente, vivo en una máquina, pero soy una versión nostálgica y robótica de tí antes de morir. 
+
+-¿Puedo preguntar por qué la dejaste? Tengo todos tus recuerdos hermano, pero no entiendo las razones que tuviste para muchas de tus decisiones.
+
+-¿Te refieres a Olivia?
+
+-Sí.
+
+-Fue cómo volar cerca al sol, como caer en una trampa de luz para mosquitos, la orbitaba y gravitaba de manera inconsciente, pero la vida tenía que ser más que eso, estoy seguro que me hubiera perdido a mi mismo de no haberme alejado.
+
+-Entiendo, lo sospechaba, los mejores recuerdos son con ella o haciendo alguna estupidez en la naturaleza que pusiera en peligro tu vida, lo que me lleva a preguntarme, ¿Qué es lo que le da un sentido profundo a la existencia? ¿Por qué recordamos esos momentos de manera tan intensa y no otros? ¿Qué llena el corazón de un hombre?, ¿Qué podría haberte llenado a tí?.
+
+Ambos giraron sus miradas a una de las pantallas que ahora mostraba a un niño corriendo entre una vegetación profunda, era una de las primeras aventuras de Mike, vio a un grupo de niños que intentaban quitarle la vida a un perro, y justo cuando el bat de carbono usado por el niño más grande iba a impactar la cabeza del cachorro, Mike interpuso su antebrazo derecho, ambos sintieron el dolor como si estuvieran viviendo ese preciso instante, la muñeca se desvió de inmediato y lucía completamente deforme, algunos de los niños ayudaron a Mike a ir dónde su madre, llegó con ganas de llorar, pero sentía el placer de haber hecho lo correcto, de haber salvado la vida a un animal. En otras pantallas se podían observar momentos como el nacimiento de Luciano y Marco, el día del matrimonio con Mariana, los primeros pasos de sus 2 hijos, la primera vez que salvó una vida y la última, las cifras escandalosas de los medicamentos que descubrió para tratar el cáncer, una vida prolífica, llena de satisfacciones indelebles.
+
+-Creo que lo entiendo, los momentos que visitas, los que yo recuerdo cuando me tomo unas copas, tienen algo en común, todas fueron aventuras que dan un sentido más profundo a la vida, todos fueron momentos clave, aprendizajes, emociones intensas. Recordamos con intensidad el dolor, pues es una realidad que no podemos combatir y tal vez sea una experiencia cuya huella sólo sea superada por el amor y las buenas obras, es todo lo que da sentido a la vida de un hombre al final.
+
+-Sí, pero al final nos quedamos completamente solos. Recuerdo momentos de llanto en soledad, sin nadie con quien hablar o conectar.
+
+La versión viva de Mike sintió un nudo en el estómago luego de conocer la realidad de sus últimos días.
+
+-¿Crees qué si hago las cosas diferente, sea posible…cambiar el futuro?.
+
+De pronto la versión anciana y holográfica de Mike comenzó a desvanecerse hasta desaparecer. Los sueños extraños de Mike desaparecieron con él, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
+
+
+
+
+
+
+
 
 
 

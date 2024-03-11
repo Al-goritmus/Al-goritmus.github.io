@@ -275,7 +275,7 @@ Hubo una pausa y todos se echaron a reír.
 
 -¿Qué preguntas traen hoy mis descendientes menos ingratos? - Mike sonaba cómico por algún ajuste de la máquina que le daba vida a su consciencia. 
 
-- Me gustaría tener más éxito con las mujeres- dijo Sean, desviando la mirada, claramente incómodo. 
+-Me gustaría tener más éxito con las mujeres- dijo Sean, desviando la mirada, claramente incómodo. 
 
 -y yo necesito mejorar mi disciplina - Dijo Julio con el mentón bien arriba y la mirada altiva que lo caracterizaba.- Pensé que tu con el galardón que posees, debes saber todo sobre la disciplina.
 
@@ -291,9 +291,11 @@ Julio se removió incómodo, se hizo evidente que no quería entrar en esa discu
 
 Julio y Sean desaparecieron literalmente de la vista de Mike. 
 
+Colombia 2028
+
 [canción Tuyo-Rodrigo Amarante](https://open.spotify.com/intl-es/track/6g2BiiVQqY5v1S4HIrM54F?si=434ac01aa1e442c0)
 
-Se dibujó el mando de una avioneta que volaba a pocos metros del agua de un enorme río, el agua era oscura y a ambos lados había montones de vegetación espesa. Sonaba una canción en un equipo de sonido improvisado, Tuyo de Rodrigo Amarante, la vista era un espectáculo y el calor era compensado por el pago de apreciar la espesura del bosque, el peligro de caer en el agua y quedar perdido en ningún lugar, todo este escenario era excesivamente estimulante para Mike, era embriagante, era estar vivo, era 2028 y el calentamiento global ya hacía de las suyas, pero el mundo aún era un lugar lindo para vivir. La canción comenzaba a hablar:”Soy el fuego que arde tu piel, soy el agua que mata tu sed, el castillo la torre yo soy, la espada que guarda el caudal…”.  El río se acercaba peligrosamente a la avioneta, ¿o era al revés? y Mike tuvo la sensación de que estaría bien morir en un lugar así, viviendo así, quería saltar y nadar con los delfines rosados y ver una anaconda, quería devorar la selva. La misión era clara: robar varios especímenes de plantas que se sospechaba iban a ser claves para encontrar nuevos tratamientos para el cáncer, bastaba con escoger las correctas y el mundo se haría un lugar mejor, había investigado las rutas del narcotráfico Colombiano y Brasilero para encontrar la manera de viajar sin ser detectado y resultó que la mejor manera era serpentear sobre el amazonas a escasos 4 o 5 metros del agua.
+Se dibujó el mando de una avioneta que volaba a pocos metros del agua de un enorme río, el agua era oscura y a ambos lados había montones de vegetación espesa. Sonaba una canción en un equipo de sonido improvisado, Tuyo de Rodrigo Amarante, la vista era un espectáculo y el calor era compensado por el pago de apreciar la espesura del bosque, el peligro de caer en el agua y quedar perdido en ningún lugar, todo este escenario era excesivamente estimulante para Mike, era embriagante, era estar vivo, también era 2028 y el calentamiento global ya hacía de las suyas, pero el mundo aún era un lugar lindo para vivir. La canción comenzaba a hablar: ”Soy el fuego que arde tu piel, soy el agua que mata tu sed, el castillo la torre yo soy, la espada que guarda el caudal…”.  El río se acercaba peligrosamente a la avioneta, ¿o era al revés? y Mike tuvo la sensación de que estaría bien morir en un lugar así, viviendo así, quería saltar y nadar con los delfines rosados y ver una anaconda, quería devorar la selva. La misión era clara: robar varios especímenes de plantas que se sospechaba iban a ser claves para encontrar nuevos tratamientos para el cáncer, bastaba con escoger las correctas y el mundo se haría un lugar mejor, había investigado las rutas del narcotráfico Colombiano y Brasilero para encontrar la manera de viajar sin ser detectado y resultó que la mejor manera era serpentear sobre el amazonas a escasos 4 o 5 metros del agua.
 
 -¿Estamos cerca amigo? - Mike hablaba un español perfecto pues su padre era Uruguayo y decidió llamarlo Mike en honor a un boxeador famoso de finales del siglo 20. 
 
@@ -309,7 +311,7 @@ Avanzó 10 años al futuro, la previa de la gala de los premios nobel, ese año 
 
 -Martín, hay algo que me tiene pensando últimamente, tomamos solo 20 especímenes, de una zona muy específica y logramos obtener 3 moléculas importantísimas, ¿no crees que debería volver al amazonas y traer más plantas? - Mike tenía un puro en la mano y saboreaba el tabaco de la habana en su boca mientras observaba con cuidado a Martín. 
 
--Puede ser, es posible, no lo sé, sería mucha coincidencia que hubieras aterrizado justo en dónde había las únicas 3 moléculas útiles de semejante selva, pero ya no tienes 30 años la última vez te metieron un disparo en la pierna cuando intentabas regresar, ¿crees que vale la pena volver? ¿No recibes hoy un puto nobel?. -Martín se rascaba la cabeza confundido intentando entender a Mike. 
+-Puede ser, es posible, no lo sé, sería mucha coincidencia que hubieras aterrizado justo en dónde había las únicas 3 moléculas útiles de semejante selva, pero ya no tienes 30 años y la última vez te metieron un disparo en la pierna cuando intentabas regresar, ¿crees que vale la pena volver? ¿No recibes hoy un puto nobel?. -Martín se rascaba la cabeza confundido intentando entender a Mike. 
 
 -No es por el premio, es cambiar el futuro de tanta gente, ¿no te habrás olvidado de la causa de muerte de mi madre, Martín o sí? ¿Sigues consumiendo opio? Pensé que lo habías dejado. - Mike sonaba genuinamente preocupado por su amigo, aunque la respuesta tuvo un poco de venganza.
 
@@ -325,6 +327,7 @@ Avanzó 10 años al futuro, la previa de la gala de los premios nobel, ese año 
 
 Se echaron a reír. Luego Mike pudo ver en plano secuencia la llegada de Olivia, ella tenía los ojos oscuros y la mirada aguda, era su científica favorita y la única persona que había podido querer luego de dejar a la madre de sus hijos, Mariana. Olivia tenía un enorme parecido con Olivia Munn y para Mike fue sencillo perderse en su mirada, más que eso: fue inevitable. 
 
+
 Vienna 2024.
 
 -¿Para qué quieres ir al Amazonas? - Olivia miraba fijamente a Mike con ojos impenetrables que parecían atravesar la materia a su paso.
@@ -335,9 +338,9 @@ Vienna 2024.
 
 -Sólo busco vivir de acuerdo a mis sueños, no es una locura en vano, imagina cuanta gente podríamos ayudar si el proyecto es exitoso, imagina el mundo que podríamos comenzar a construir cuando demostremos el origen de estas moléculas - Mike sonaba entusiasmado defendiendo su idea y de paso su integridad mental.
 
-Estaban en el café central de Viena, y el quinteto de tango de Viena interpretaba: el último café, demasiado para ser coincidencia. Mike esperaba que la música por la que había pagado, le ayudara a negociar con Olivia para obtener su apoyo y asesoría en el proyecto Nukak como había decidido llamarlo esa mañana mientras se duchaba.
+Estaban en el café central de Viena, y el quinteto de tango de Viena interpretaba: el último café. Demasiado para ser coincidencia. Mike esperaba que la música por la que había pagado, le ayudara a negociar con Olivia para obtener su apoyo y asesoría en el proyecto Nukak como había decidido llamarlo esa mañana mientras se duchaba.
 
--Supongamos que te ayudo, ¿qué beneficio obtengo?, estás acostumbrado a obtener ayuda de las personas al seducirlos con tus sueños y fantasía y no me interesa ni el reconocimiento ni el dinero. Quiero tener tus hallazgos de primera mano, no quiero a otros científicos metiendo las narices en esto y sobre todo no quiero a otras de tus novias interrumpiendo mi trabajo cuando comencemos a analizar las muestras, si esto es como la artemisina quiero que compartas la cima conmigo al final. - Olivia sonaba decidida y categórica al establecer sus términos, su mirada brillaba irradiando tenacidad pero había algo más en ella, ligeros matices de lujuria, un deseo febril.
+-Supongamos que te ayudo, ¿qué beneficio obtengo?, estás acostumbrado a obtener ayuda de las personas al seducirlos con tus sueños y fantasías, y no me interesa ni el reconocimiento ni el dinero. Quiero tener tus hallazgos de primera mano, no quiero a otros científicos metiendo las narices en esto y sobre todo no quiero a otras de tus novias interrumpiendo mi trabajo cuando comencemos a analizar las muestras, si esto es como la artemisina quiero que compartas la cima conmigo al final. - Olivia sonaba decidida y categórica al establecer sus términos, su mirada brillaba irradiando tenacidad pero había algo más en ella, había matices de lujuria, un deseo febril.
 
 ..
 
@@ -361,19 +364,19 @@ Mike se quedó suspendido entre sus mejores recuerdos, disfrutando el recuerdo d
 
 -No entiendo qué tengo que hacer abuelo, en serio me esfuerzo, lo intento, pero no se me da fácil, no es como la clase de computación dónde puedo resolver todo sin mucho esfuerzo.
 
--Ahí está el problema: 'sin mucho esfuerzo'. Estás tratando esto como si fuera un problema informático, pero no lo es. Primero debes entenderte a ti mismo antes de abordar esto.
+-Ahí está el problema: 'sin mucho esfuerzo'. Estás tratando esto como si fuera un problema informático, pero no lo es. Primero debes entenderte a ti mismo antes de abordar este tema de las mujeres.
 
 -¿Resolverme primero? umm ¿y como estás tan seguro de que lo que te funcionó hace 100 años podría funcionar hoy? ¿No crees que las reglas han cambiado? Hoy en día todo volvió a las costumbres sexuales de la época victorena y la gente cree que eso es mejor que en tus tiempos dónde había más libertad - Sean se rascaba la cabeza como tratando de entender mecánica cuántica.
 
 -Se dice época victoriana y si no te resistieras a usar el asistente cognitivo que te implantaron, podrías andar por el mundo sin nombrar mal la mitad de las cosas que hablas.-Mike se divertía a costa de Sean mientras navegaba el recuerdo un paisaje de los Alpes que visitó en 2030.
 
--Para tí es fácil decir que use la asistencia IA pues eres un abuelo robot, yo quiero ganarme las cosas por mi cuenta, crecer usando mi cerebro que no será el mejor pero se esfuerza. -Sean posaba orgulloso mientras admitía sus limitaciones, se acomodó la chaqueta con suficiencia antes de agachar la cabeza y continuar - ¿Por qué crees que son iguales que en tus tiempos?
+-Para tí es fácil decir que use la asistencia IA porque eres un abuelo robot, yo quiero ganarme las cosas por mi cuenta, crecer usando mi cerebro que no será el mejor pero se esfuerza. -Sean posaba orgulloso mientras admitía sus limitaciones, se acomodó la chaqueta con suficiencia antes de agachar la cabeza y continuar - ¿Por qué crees que son iguales que en tus tiempos?
 
 -Porque 2 mil años de civilización no cambian a los cerebros que evolucionaron durante millones de años en el áfrica, mira muchacho, los entes femeninos de los que tanto hablas, buscan fundamentalmente como compañía a alguien que disfruta de solidez mental, una idea clara sobre su propia vida y un camino decidido, todo eso era útil para sobrevivir en las periferias del monte Kilimanjaro, no puedes esperar que se reprograme toda la genética cada que a la cultura le da por cambiar. 
 
 Sean destapó una lata de cerveza y se recostó en la pared-¿Entonces qué sugieres que haga? ¿Defino mis metas, trazo mi camino y ya?
 
--Vive tu vida, es la única que vas a tener, buscate un par de aventuras, conoce el mundo, habla con otras personas, sube una montaña, lánzate al océano, la mayor parte de mi vida adulta no pude hacer nada de eso porque el mundo estaba demasiado contaminado, pero tienes el privilegio de un mundo renovado. Luego te preocupas por seducir a quienes no tienen en principio, ninguna obligación para prestarte atención, vive tu vida. Hasta pronto.
+-Vive tu vida, es la única que vas a tener, buscate un par de aventuras, conoce el mundo, habla con otras personas, sube una montaña, lánzate al océano. La mayor parte de mi vida adulta no pude hacer nada de eso porque el mundo estaba demasiado contaminado, pero tienes el privilegio de un mundo renovado. Luego te preocupas por seducir a quienes no tienen en principio, ninguna obligación para prestarte atención, vive tu vida. Hasta pronto.
 
 Mike apagó la interfaz de interacción con el mundo externo y decidió navegar a uno de sus mejores recuerdos. 
 
@@ -462,7 +465,7 @@ La versión viva de Mike sintió un nudo en el estómago luego de conocer la rea
 
 De pronto la versión anciana y holográfica de Mike sonrío de medio lado, lucía tranquilo y satisfecho, luego comenzó a desvanecerse hasta desaparecer. 
 
-Los sueños extraños de Mike desaparecieron con él, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
+Los sueños extraños de Mike desaparecieron con el holograma anciano, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos, volvió a Olivia. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz en el futuro y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida diferente, una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
 
 ![firstpic2](\img\posts\Mike2.jpg)
 

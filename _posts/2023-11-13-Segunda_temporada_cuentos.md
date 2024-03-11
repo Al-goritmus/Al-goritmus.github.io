@@ -431,7 +431,7 @@ Su versión viva tenía un montón de preguntas, no intentaba despertar en absol
 
 -Más de las que quisiera, hay un patrón, ocurre todas las noches memorables de mi vida, los días inolvidables, los días que creo voy a recordar hasta mi muerte y me asusta pero pienso que podría tratarse de una realidad paralela.
 
--No es una realidad paralela - La voz robótica sonaba ahora ligeramente paternal - Es el futuro, en el lugar y momento que habito, ya estás muerto, soy todo lo que queda y los dos muchachos son nietos de tus nietos, son descendientes de Lucio, el hijo mayor que tuviste con Mariana y vienen a mi en busca de sabiduría, no me siento tan sabio como para dar consejo, no hay hombre que sea tan viejo, solo viví una vida, la vida que estás viviendo.
+-No es una realidad paralela - La voz robótica sonaba ahora ligeramente paternal - Es el futuro, en el lugar y momento que habito, ya estás muerto, soy todo lo que queda. Los dos muchachos son nietos de tus nietos, son descendientes de Lucio, el hijo mayor que tuviste con Mariana y vienen a mi en busca de sabiduría, no me siento tan sabio como para dar consejo, no hay hombre que sea tan viejo, solo viví una vida, la vida que estás viviendo.
 
 -Carajo, las posibilidades son infinitas…si esto fuera real, podría tratarse de una curvatura cerrada tipo tiempo como las que planteó Einstein, pero esto plantearía problemas serios con la causalidad, podría tratarse de una realidad simulada en la que universos y versiones de todas mis etapas y edades sean reales al mismo tiempo. ¿Sabes si en tu tiempo ya se esclareció algo de esto?.
 

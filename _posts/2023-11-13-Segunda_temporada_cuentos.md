@@ -240,28 +240,27 @@ Final de la parte 1.
 
 ![firstpic1](\img\posts\Mike1.jpg)
 
+-Arruinaron el juego Mariana, ese fue el problema con el internet y las redes sociales. Nadie tenía la cabeza preparada para eso, tu fuiste víctima de ese cambio. - Mike le acomodó el cabello a Mariana detrás de la oreja mientras pronunciaba esas palabras.
 
-La paradoja inmortal.
+-Lo recuerdo bien, fueron tiempos extraños. Nada salía de acuerdo a lo que se planeaba. ¿Crees que por eso decidimos abandonar esos espacios? Mariana tenía una voz dulce y maternal. Su cabello castaño estaba recogido y sus rasgos eran delicados. Vestía una blusa azul cielo con un hoodie gris de cremallera abierta, dando la impresión de que iría a trotar más tarde. Mientras hablaba, giraba una pequeña cuchara en una taza de café.
 
--Arruinaron el juego Mariana, ese fue el problema, con el internet y las redes sociales. Todo cambió radicalmente y nadie tenía la cabeza preparada para eso, tu fuiste víctima de ese cambio. - Mike le acomodó el cabello a Mariana detrás de la oreja mientras pronunciaba esas palabras.
+-¡Obviamente!, ¿quién quiere vivir en un mundo así de aburrido? No hay profundidad en esos espacios, porque muy pocas personas se dedicaron a mostrar su realidad. Entonces, la gente se encontró inmersa en un mundo de fantasías: nadie veía la realidad de nadie, solo la fantasía, la proyección. Y no hablo de la fantasía genuina, más bien de la que cada quien creía que le haría más atractivo.
 
--Lo recuerdo bien, fueron tiempos extraños, nada salía de acuerdo a lo que se planeaba, ¿crees que por eso decidimos abandonar esos espacios?. -Mariana tenía la voz dulce y maternal.
+-¿Pero por qué invertiría todo el mundo en eso? -Mariana miraba al lado izquierdo de la mesa, tratando de encontrar las palabras correctas - ¿No crees que de pronto, el mundo estaba siendo infeliz por ser tan deshonesto, qué la fantasía nos hizo más miserables a todos?.
 
--¡Obviamente!, quien quiere vivir en un mundo así de aburrido, no hay profundidad en esos espacios, porque muy pocas personas se dedicaron a mostrar su realidad y entonces súbitamente la gente se encontró inmersa en un mundo de fantasías, nadie veía la realidad de nadie, solo la fantasía, la proyección y no hablo de la fantasía genuina, más bien la que cada quien creía que le haría más atractivo.
+-Ser deshonesto es una fuente de infelicidad pero tal vez no la más importante…hay algo más que debes aprender y es que… 
 
--¿Pero por qué invertiría todo el mundo en eso?-Mariana miraba al lado izquierdo tratando de encontrar las palabras correctas - ¿No crees que de pronto, el mundo estaba siendo infeliz por ser tan deshonesto?.
-
--Ser deshonesto es una fuente de infelicidad pero tal vez no la más importante…hay algo más que debes aprender y es que… -El bar de aspecto moderno dónde compartían comenzó a deshacerse de a poco y la imagen se tornó borrosa hasta dibujarse un cuarto de máquinas típico de escena futurista.
+El bar de aspecto moderno dónde compartían comenzó a deshacerse de a poco y la imagen se tornó borrosa hasta dibujarse un cuarto de máquinas típico de escena futurista.
 
 La voz de Mike cambió a una versión robotizada y monótona - ¿Qué ocurre? - Aunque su voz era artificial, se notaba un tono de impaciencia.
 
-En la habitación había un hombre mirando a un holograma con el cuerpo de Mike y la ropa que había llevado a su cita con Mariana, la habitación era el hardware de una computadora que albergaba la mente de alguien que tuvo la idea de trascender al cargar su conciencia a un espacio virtual. Mike era la consciencia digitalizada de alguien que había dejado de vivir 80 años en el pasado.
+En la habitación, un hombre observaba un holograma con el cuerpo de Mike y la ropa que había llevado a su cita con Mariana. La habitación era el hardware de una computadora que albergaba la mente de alguien que tuvo la idea de trascender al cargar su conciencia a un espacio virtual. Mike era la consciencia digitalizada de alguien que había dejado de vivir 80 años en el pasado.
 
 -Mike, hay unos de sus descendientes que quieren verlo para consultarle algo, son los dos jóvenes que serían nietos de sus nietos. -Dijo el mayordomo de Mike.
 
--¡Que entren, no me gusta hacer esperar a mi familia.-El holograma de Mike cambió su atuendo por uno deportivo.
+-¡Que entren!, no me gusta hacer esperar a mi familia.-El holograma de Mike cambió su atuendo por uno deportivo.
 
-Por la puerta entraron dos jóvenes, uno se llamaba Julio tenía unos 20 años y llevaba una pinta típica del año 1945, el año que terminó la segunda guerra mundial, su ropa iba compuesta de una camisa blanca, corbata, un jumper café de punto redondo y pantalón negro, el cabello peinado hacia atrás, configuraba la perfecta imitación de un académico de oxford de 200 años atrás. El otro, Sean, tenía 30 años, lucía más atlético y traía la pinta clásica de Marty McFly en Volver al futuro, chaqueta de cuero y aspecto rebelde. 
+Por la puerta entraron dos jóvenes. Uno, Julio, tenía unos 20 años y vestía al estilo de 1945, el año que terminó la Segunda Guerra Mundial. Su ropa consistía en una camisa blanca, corbata, un jersey café de punto redondo y pantalón negro. Su cabello peinado hacia atrás completaba la perfecta imitación de un académico de Oxford de 200 años atrás. El otro, Sean, de 30 años, lucía más atlético y vestía la clásica pinta de Marty McFly en Volver al Futuro: chaqueta de cuero y aspecto rebelde.
 
 -¡Abuelo Mike! Es un placer verte,¿te interrumpimos?- Sean era jovial y sonaba medio de broma todo el tiempo.
 
@@ -273,7 +272,7 @@ Por la puerta entraron dos jóvenes, uno se llamaba Julio tenía unos 20 años y
 
 Hubo una pausa y todos se echaron a reír.
 
--¿Qué preguntas traen hoy mis descendientes menos ingratos? - Mike sonaba cómico por algún ajuste de la máquina que le daba vida a su consciencia. 
+-¿Qué preguntas traen hoy mis descendientes menos ingratos? - Mike sonaba cómico, por algún ajuste de la máquina que le daba vida a su consciencia. 
 
 -Me gustaría tener más éxito con las mujeres- dijo Sean, desviando la mirada, claramente incómodo. 
 
@@ -297,7 +296,7 @@ Colombia 2028
 
 Se dibujó el mando de una avioneta que volaba a pocos metros del agua de un enorme río, el agua era oscura y a ambos lados había montones de vegetación espesa. Sonaba una canción en un equipo de sonido improvisado, Tuyo de Rodrigo Amarante, la vista era un espectáculo y el calor era compensado por el pago de apreciar la espesura del bosque, el peligro de caer en el agua y quedar perdido en ningún lugar, todo este escenario era excesivamente estimulante para Mike, era embriagante, era estar vivo, también era 2028 y el calentamiento global ya hacía de las suyas, pero el mundo aún era un lugar lindo para vivir. La canción comenzaba a hablar: ”Soy el fuego que arde tu piel, soy el agua que mata tu sed, el castillo la torre yo soy, la espada que guarda el caudal…”.  El río se acercaba peligrosamente a la avioneta, ¿o era al revés? y Mike tuvo la sensación de que estaría bien morir en un lugar así, viviendo así, quería saltar y nadar con los delfines rosados y ver una anaconda, quería devorar la selva. La misión era clara: robar varios especímenes de plantas que se sospechaba iban a ser claves para encontrar nuevos tratamientos para el cáncer, bastaba con escoger las correctas y el mundo se haría un lugar mejor, había investigado las rutas del narcotráfico Colombiano y Brasilero para encontrar la manera de viajar sin ser detectado y resultó que la mejor manera era serpentear sobre el amazonas a escasos 4 o 5 metros del agua.
 
--¿Estamos cerca amigo? - Mike hablaba un español perfecto pues su padre era Uruguayo y decidió llamarlo Mike en honor a un boxeador famoso de finales del siglo 20. 
+-¿Estamos cerca amigo? - Mike hablaba un español perfecto pues su padre era Uruguayo, aunque decidió llamarlo "Mike" en honor a un boxeador famoso de finales del siglo 20. 
 
 -ya estamos llegando parce, pero no se me vaya a asustar que por aquí hay guerrilleros y varios grupos armados, además que la armada colombiana da vueltica a veces para buscar a quien darle de baja.
 
@@ -307,38 +306,45 @@ Se dibujó el mando de una avioneta que volaba a pocos metros del agua de un eno
 
 Llegaron a la pista y Mike hizo todo como se lo explicaron, logró escabullirse lejos de la finca que estaba asociada a la pista, pagó una buena suma de dinero por el anonimato. Tardó 10 días en reunir los especímenes que necesitaba, vio toda clase de animales en la selva pero ninguno se metió con él, tuvo la ilusión de que sabían que no iba a hacer lo mismo que los militantes de la zona o que tal vez ya le tenían miedo a las personas. Se dejó embriagar de todos esos recuerdos, se sumergió en el Amazonas un rato porque no pudo hacerlo cuando vivía.
 
-Avanzó 10 años al futuro, la previa de la gala de los premios nobel, ese año le tocaba a Mike el de medicina porque logró alterar con IA las moléculas bioactivas de las plantas amazónicas hasta transformarlas en 3 poderosas moléculas quimioterápicas y el resultado fue un descenso evidente en la mortalidad por 6 tipos de cáncer. Pero no venía a esta época por el condenado premio, venía para pasar un rato con Martín, uno de sus mejores amigos, tenía preguntas que hacerle a este recuerdo, más tarde sería el turno de Olivia, una doctora española, la oncóloga que acogió primero sus propuestas farmacéuticas. 
+Avanzó 10 años al futuro: la previa de la gala de los premios Nobel. Ese año, el premio de medicina le correspondía a Mike por haber logrado alterar con IA las moléculas bioactivas de las plantas amazónicas, transformándolas en 3 poderosas moléculas quimioterápicas. El resultado fue un descenso evidente en la mortalidad por 6 tipos de cáncer. Pero no había viajado a esta época por el dichoso premio, sino para pasar un rato con Martín, uno de sus mejores amigos, el mejor químico que había conocido y que Mike disfrutaba llamar: El alquimista. Tenía preguntas que hacerle a este recuerdo. Más tarde sería el turno de Olivia, una doctora española y la oncóloga que acogió primero sus propuestas farmacéuticas.
 
--Martín, hay algo que me tiene pensando últimamente, tomamos solo 20 especímenes, de una zona muy específica y logramos obtener 3 moléculas importantísimas, ¿no crees que debería volver al amazonas y traer más plantas? - Mike tenía un puro en la mano y saboreaba el tabaco de la habana en su boca mientras observaba con cuidado a Martín. 
+Vienna 2034.
 
--Puede ser, es posible, no lo sé, sería mucha coincidencia que hubieras aterrizado justo en dónde había las únicas 3 moléculas útiles de semejante selva, pero ya no tienes 30 años y la última vez te metieron un disparo en la pierna cuando intentabas regresar, ¿crees que vale la pena volver? ¿No recibes hoy un puto nobel?. -Martín se rascaba la cabeza confundido intentando entender a Mike. 
+Se encontraban en el lobby del Hotel Sacher Wien, con el peso de la historia sobre sus hombros. El lugar era de una elegancia imponente: combinaba el rojo tapiz de la alfombra y los muebles con el café madera oscuro de las paredes. La luz, administrada por lámparas doradas, permitía el paso de una iluminación precisa para una conversación profunda. La luz del imperio austrohúngaro se sugería en cada detalle de la decoración, dando la impresión de haberse forjado como un lugar aislado del mundo, que no recrea nada de lo que ocurre en otros lugares. Más bien, a los huéspedes los envuelve un sentido de aristocracia, el mismo que trataba de preservar Anna Sacher cuando en algún momento de la historia prohibió la entrada a todo aquel que no perteneciera a la nobleza o la realeza.
 
--No es por el premio, es cambiar el futuro de tanta gente, ¿no te habrás olvidado de la causa de muerte de mi madre, Martín o sí? ¿Sigues consumiendo opio? Pensé que lo habías dejado. - Mike sonaba genuinamente preocupado por su amigo, aunque la respuesta tuvo un poco de venganza.
+Mike caminó por el Grûne bar, con su concierto de verdes y dorados, hasta encontrar a su viejo amigo Martín. Ordenaron dos cocteles Green Martini.
 
--No he vuelto a caer en el opio, y traerlo a colación hoy, con la ansiedad de esta ceremonia, no me ayuda en lo más mínimo. ¿No has probado el vino de Córdoba que te traje?.
+—Martín, hay algo que me tiene pensando últimamente, yo tomé solo 20 especímenes de una zona muy específica y luego logramos obtener 3 moléculas importantísimas. ¿No crees que debería volver al Amazonas y traer más plantas? — Mike tenía un puro en la mano y saboreaba el tabaco de la Habana en su boca mientras observaba con cuidado a Martín.
 
--Lo voy a destapar con Olivia, quiero probarlo en un momento especial.
+—Puede ser, es posible, no lo sé, sería mucha coincidencia que hubieras aterrizado justo donde había las únicas 3 moléculas útiles de semejante selva. Pero ya no tienes 30 años y la última vez te metieron un disparo en la pierna cuando intentabas regresar. ¿Crees que vale la pena volver? ¿No recibes hoy un puto Nobel? — Martín se rascaba la cabeza confundido, intentando entender a Mike.
 
--¿Sigues consumiendo mujeres? Pensé que ya habrías dejado esa adicción.
+—No es por el premio, es cambiar el futuro de tanta gente. ¿No te habrás olvidado de la causa de muerte de mi madre, Martín, o sí? ¿Sigues consumiendo opio? Pensé que lo habías dejado. — Mike sonaba genuinamente preocupado por su amigo, aunque la respuesta tuvo un poco de venganza.
 
--La superé pero, Olivia es diferente. - Mike levantó un dedo de la mano derecha para puntualizar la diferencia invisible.
+—No he vuelto a caer en el opio, y traerlo a colación hoy, con la ansiedad de esta ceremonia, no me ayuda en lo más mínimo. ¿No has probado el vino de Córdoba que te traje?
 
--Si me pagaran un Euro por cada vez que te escucho decir eso, sería más rico que tú luego de recibir el premio!.
+—Lo voy a destapar con Olivia, quiero probarlo en un momento especial.
 
-Se echaron a reír. Luego Mike pudo ver en plano secuencia la llegada de Olivia, ella tenía los ojos oscuros y la mirada aguda, era su científica favorita y la única persona que había podido querer luego de dejar a la madre de sus hijos, Mariana. Olivia tenía un enorme parecido con Olivia Munn y para Mike fue sencillo perderse en su mirada, más que eso: fue inevitable. 
+—¿Sigues consumiendo mujeres? Pensé que ya habrías dejado esa adicción.
 
+—La superé, pero Olivia es diferente. — Mike levantó un dedo de la mano derecha para puntualizar la diferencia invisible.
 
-Vienna 2024.
+—Si me pagaran un euro por cada vez que te escucho decir eso, sería más rico que tú luego de recibir el premio!
 
--¿Para qué quieres ir al Amazonas? - Olivia miraba fijamente a Mike con ojos impenetrables que parecían atravesar la materia a su paso.
+Se echaron a reír. Martín había sido clave en la investigación de las propiedades farmacéuticas de las plantas amazónicas porque poseía un laboratorio de punta, completamente independiente de las mafias farmacéuticas, que habían tratado de tenderles toda clase de trampas y obstáculos durante años. Hablaron de la vida. Mike mencionó que no tenía intenciones de morir simplemente, que soñaba con copiar su mente a una máquina para seguir viviendo. Martín lo miraba confundido, aunque era más bien raro que no tuviera esa mirada al hablar con Mike.
 
--Bioprospección, quiero ir a buscar especies de plantas cuyas propiedades farmacéuticas no sean conocidas, de paso me gustaría ver ese lugar tan maravilloso y recóndito, te pediría que vayas conmigo pero es un viaje peligroso - Mike apretó los músculos de los brazos tratando de impresionar a la científica brillante que tenía al frente, poco entendía sobre lo que una mujer como Olivia iba a encontrar atractivo en él. 
+Luego de un par de horas de conversación, interrumpida por la risa que solo se comparte con un mejor amigo, Mike se despidió de Martín y caminó al Rote Bar para viajar a otra época, el 2024, 10 años hacia el pasado. Pudo ver en plano secuencia la llegada de Olivia: ella tenía los ojos oscuros y la mirada aguda. Era su científica favorita y la única persona que había podido querer luego de dejar a la madre de sus hijos, Mariana. Olivia tenía un enorme parecido con Olivia Munn y para Mike fue sencillo perderse en sus ojos. Más que eso: fue inevitable.
+
+El Rote Bar era un concierto visual de rojos y dorados. Algunas de las personas más célebres de la historia habían bebido vino o ginebra en ese lugar. El aire estaba cargado de un perfume amaderado suave, pero igual de embriagador que los cocteles. Afuera llovía, pero el lugar era tan envolvente que a Mike le daba la sensación de no saber qué era afuera porque el mundo exterior había desaparecido de momento y no sabía cuándo iba a regresar. En este microcosmos de poder e influencia, las intrigas políticas se mezclaban con los secretos de alcoba, y el destino de naciones se tejía en la penumbra, bajo la atenta mirada de los retratos de emperadores y aristócratas. Mike recorrió a Olivia con la mirada.
+
+—¿Para qué quieres ir al Amazonas? — Olivia miraba fijamente a Mike con ojos impenetrables que parecían atravesar la materia a su paso.
+
+—Bioprospección. Quiero ir a buscar especies de plantas cuyas propiedades farmacéuticas no sean conocidas. De paso, me gustaría ver ese lugar tan maravilloso y recóndito. Te pediría que vayas conmigo, pero es un viaje peligroso. — Mike apretó los músculos de los brazos tratando de impresionar a la científica brillante que tenía al frente. Poco entendía sobre lo que una mujer como Olivia iba a encontrar atractivo en él.
 
 -Vas a arriesgar tu vida para conseguir unas plantas de las que no sabes nada, no eres botánico, no sabes de ecología, sólo es un médico que frustró su camino en la medicina porque temía no hacerlo perfecto. - Olivia dio un sorbo al café caliente que sostenía en la mano derecha, sin dejar de mirar a Mike con una mezcla de reprobación y curiosidad.-Eres un niño de 30 años.
 
 -Sólo busco vivir de acuerdo a mis sueños, no es una locura en vano, imagina cuanta gente podríamos ayudar si el proyecto es exitoso, imagina el mundo que podríamos comenzar a construir cuando demostremos el origen de estas moléculas - Mike sonaba entusiasmado defendiendo su idea y de paso su integridad mental.
 
-Estaban en el café central de Viena, y el quinteto de tango de Viena interpretaba: el último café. Demasiado para ser coincidencia. Mike esperaba que la música por la que había pagado, le ayudara a negociar con Olivia para obtener su apoyo y asesoría en el proyecto Nukak como había decidido llamarlo esa mañana mientras se duchaba.
+El quinteto de tango de Viena interpretaba: el último café. Demasiado para ser coincidencia. Mike esperaba que la música por la que había pagado, le ayudara a negociar con Olivia para obtener su apoyo y asesoría en el proyecto Nukak como había decidido llamarlo esa mañana mientras se duchaba.
 
 -Supongamos que te ayudo, ¿qué beneficio obtengo?, estás acostumbrado a obtener ayuda de las personas al seducirlos con tus sueños y fantasías, y no me interesa ni el reconocimiento ni el dinero. Quiero tener tus hallazgos de primera mano, no quiero a otros científicos metiendo las narices en esto y sobre todo no quiero a otras de tus novias interrumpiendo mi trabajo cuando comencemos a analizar las muestras, si esto es como la artemisina quiero que compartas la cima conmigo al final. - Olivia sonaba decidida y categórica al establecer sus términos, su mirada brillaba irradiando tenacidad pero había algo más en ella, había matices de lujuria, un deseo febril.
 

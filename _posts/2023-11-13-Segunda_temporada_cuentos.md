@@ -464,9 +464,11 @@ Su versión viva tenía un montón de preguntas, no intentaba despertar en absol
 
 -Sí.
 
--Fue cómo volar cerca al sol, como caer en una trampa de luz para mosquitos, la orbitaba y gravitaba de manera inconsciente, pero la vida tenía que ser más que eso, estoy seguro que me hubiera perdido a mi mismo de no haberme alejado.
+Por la mente del Mike de carne y hueso, pasaron rápidamente imágenes vívidas de un bar teñido de rojo y dorado, una habitación inundada de atardecer, la trompeta de Louis Armstrong cargando el aire de una nostalgia apasionada, la sonrisa enamorada de Olivia entre las sábanas de la cama y un dolor casi físico le atravesó el pecho por un instante.
 
--Entiendo, lo sospechaba, los mejores recuerdos son con ella o haciendo alguna estupidez en la naturaleza que pusiera en peligro tu vida, lo que me lleva a preguntarme, ¿Qué es lo que le da un sentido profundo a la existencia? ¿Por qué recordamos esos momentos de manera tan intensa y no otros? ¿Qué llena el corazón de un hombre?, ¿Qué podría haberte llenado a tí?.
+-Fue cómo volar cerca al sol, como caer en una trampa de luz para mosquitos, la orbitaba y gravitaba de manera inconsciente, pero pensé que la vida tenía que ser más que eso, estoy seguro que me hubiera perdido a mi mismo de no haberme alejado.
+
+-Entiendo, lo sospechaba. Los mejores recuerdos son con ella o haciendo alguna estupidez en la naturaleza que pusiera en peligro tu vida, lo que me lleva a preguntarme, ¿Qué es lo que le da un sentido profundo a la existencia? ¿Por qué recordamos esos momentos de manera tan intensa y no otros? ¿Qué llena el corazón de un hombre?, ¿Qué podría haberte llenado a tí?.
 
 Ambos giraron sus miradas a una de las pantallas que ahora mostraba a un niño corriendo entre una vegetación profunda, era una de las primeras aventuras de Mike, vio a un grupo de niños que intentaban quitarle la vida a un perro, y justo cuando el bat de carbono usado por el niño más grande iba a impactar la cabeza del cachorro, Mike interpuso su antebrazo derecho, ambos sintieron el dolor como si estuvieran viviendo ese preciso instante. La muñeca se desvió de inmediato y lucía completamente deforme, algunos de los niños ayudaron a Mike a ir dónde su madre. Llegó con ganas de llorar, pero sentía el placer de haber hecho lo correcto, de haber salvado la vida a un animal. 
 
@@ -482,7 +484,9 @@ La versión viva de Mike sintió un nudo en el estómago luego de conocer la rea
 
 De pronto la versión anciana y holográfica de Mike sonrío de medio lado, lucía tranquilo y satisfecho, luego comenzó a desvanecerse hasta desaparecer. 
 
-Los sueños extraños de Mike desaparecieron con el holograma anciano, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos, volvió a Olivia. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz en el futuro y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida diferente, una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. 
+Los sueños extraños de Mike desaparecieron con el holograma anciano, volvió a buscar las fuentes más genuinas de felicidad que conocía, hizo los cambios pertinentes, volvió al Amazonas, volvió a las personas que había amado en el pasado, volvió a ver a sus hijos, volvió a Olivia. La ausencia de su versión futura nunca quedó esclarecida pero Mike despertó con la sospecha de que estos cambios lo pudieran haber ayudado a morir en paz en el futuro y así, tal vez, nunca vio la necesidad de transferir su consciencia a una máquina, pues logró encontrar el camino a una vida diferente, una vida vivida de tal forma, que permitiría morir tranquilo a cualquiera. La inexistencia de la versión holográfica y digital de Mike garantizaba una dualidad extraña, pues al no existir nunca aparició en los sueños del Mike de carne y hueso, que nunca conoció al fantasma del futuro y por lo tanto no cambió su vida para poder morir en paz. 
+
+En la línea del tiempo que correspondía a la vida de Mike convivían dos versiones de su existencia, la que conoció al fantasma de las navidades futuras e hizo todo para no terminar con una vida solitaria y miserable, y la versión que como consecuencia de los cambios necesarios para poder morir en paz, nunca conoció al Mike del futuro en sus sueños y se condenaba a si mismo a vivir miserable, dibujando el arco perfecto de una paradoja inmortal.
 
 ![firstpic2](\img\posts\Mike2.jpg)
 

@@ -620,9 +620,9 @@ Este comportamiento le pareció poco esperable viniendo de el, pero decidió no 
 
 -Vamos a un lugar que no vas a poder Olvidar, Mary - Wilson la miró de reojo y sonrió de una manera diferente a la que Mary recordaba.
 
-El silencio era ensordecedor y Mary se sintió en la necesidad de entablar una conversación con Wilson.
+El silencio era ensordecedor y Mary se sintió en la necesidad de entablar una conversación.
 
--¿Sabes? Encuentro fascinante la idea del dios cristiano. Estuve leyendo sobre él y creo que es una figura intrigante, ofrece bondad o enojo según cómo se comporten los humanos.
+-¿Sabes? Encuentro fascinante la idea del dios cristiano. Estuve leyendo sobre él y creo que es una figura intrigante, ofrece bondad o enojo según como se comporten los humanos.
 
 -Es sólo un mito- Cortó Wilson y dio un suspiro de exasperación. - Es algo que se inventaron para que la gente se comportara de manera adecuada, es un invento del cerebro humano, igual que lo es la inteligencia artificial.
 

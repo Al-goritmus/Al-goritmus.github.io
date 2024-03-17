@@ -11,8 +11,8 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 
 * [Franco, el último iluminado](#franco-iluminado)
 * [Paradoja inmortal](#paradoja-inmortal)
-* [Noche de luciernadas - Parte 1](#noche-luciernagas)
-* [Noche de luciernadas - Parte 2](#noche-luciernagas2)
+* [Noche de luciernagas - Parte 1](#noche-luciernagas)
+* [Noche de luciernagas - Parte 2](#noche-luciernagas2)
 
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado

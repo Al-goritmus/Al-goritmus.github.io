@@ -587,6 +587,8 @@ Durante la noche Norman se encargaba de depurar datos innecesarios de la mente d
 
 [Mary es mi amor - Leo Dan](https://open.spotify.com/intl-es/track/7rtaRzuEKom36ZmQSmL6EB?si=76cb3f5eb743499e)
 
+Final de la parte 1. 
+
 
 
 

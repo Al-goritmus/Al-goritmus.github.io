@@ -502,9 +502,9 @@ Wilson sintió un escalofrío recorrer su espalda, vio imágenes de su infancia,
 
 Wilson era un hombre de 48 años, traía el cabello canoso sin un solo signo de calvicie, tenía un parecido marcado con Mark Ruffalo, lo que unos años atrás le había hecho ganar el apodo de The Hulk entre sus compañeros de trabajo, era psicólogo y su mayor pasión en la vida era el subconsciente de la mente humana.
 
--Qué quieres que te diga Dylan, esto es una locura, no sé que debería sentir, debería sentir miedo, pero esto es increíble. -Wilson buscaba las palabras en su mente, sin éxito, no había cómo expresar lo sobrecogedor de este avance.
+-Qué quieres que te diga Dylan, esto es una locura, no sé que debería sentir, creo que debería sentir miedo, pero la verdad es que esto es increíble. -Wilson buscaba palabras en su mente, sin éxito, no había cómo expresar lo sobrecogedor de este avance.
 
-Dylan era la imágen viva de un ratón de laboratorio, tenía el cabello rubio poblado de canas, unas gafas gruesas que cubrían buena parte de su rostro, rostro que estaba ya bien poblado de arrugas, las que el tiempo deja a quienes pasan demasiado tiempo preocupados por su trabajo.
+Dylan era la imágen viva de un ratón de laboratorio, tenía el cabello rubio lleno de canas, unas gafas gruesas que cubrían buena parte de su rostro, un rostro que estaba ya bien poblado de arrugas, las que el tiempo deja a quienes mucho de su vida preocupados por su trabajo.
 
 En el centro del laboratorio de robótica de XAI había una androide llamada Mary con el rostro de Audrey Hepburn. Poseía una combinación única de inocencia y picardía en la mirada, expresaba empatía, conversaba durante horas sobre cualquier tema, era capaz de entender las emociones humanas, a los ojos de cualquier hombre Mary era una mujer hermosa y encantadora, capaz de evocar toda clase de emociones con una interacción corta y sencilla, combinaba elegancia, sutileza, malicia, inocencia y erudición de una forma difícil de igualar para cualquier persona.
 

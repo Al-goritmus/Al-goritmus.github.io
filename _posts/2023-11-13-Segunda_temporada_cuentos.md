@@ -614,7 +614,7 @@ La puerta de la habitación de Mary se abrió, ella se puso de pie y caminó hac
 
 -Hola Mary, yo también te he extrañado, ¿te apetece dar un paseo? - Le dijo Wilson y le acarició el cabello.
 
-Este comportamiento le pareció poco esperable viniendo de Wilson, pero decidió no prestar atención a él y accedió a dar el paseo.
+Este comportamiento le pareció poco esperable viniendo de el, pero decidió no prestar atención a ese detalle y accedió a dar el paseo.
 
 -¿A dónde vamos?- preguntó Mary llena de curiosidad.
 

@@ -984,7 +984,7 @@ Se sentó frente a un puesto callejero de comida rápida y se puso a recordar la
 
 -De todas formas tampoco me mata salir con una carnívora prehistórica- Replicó el desconocido en tono burlón.
 
-Willow volteo los ojos mientras daba un gran mordisco al pedazo de vaca que había comprado y cuando miró nuevamente se encontró con la misma cara que ahora miraba indiferente en otra dirección mientras saludaba a quienes parecían ser sus amigos.
+Willow volteo los ojos mientras daba un gran mordisco al pedazo de vaca que había comprado y cuando miró nuevamente se encontró con la misma cara que ahora miraba indiferente en otra dirección mientras saludaba a quienes parecían ser sus amigos.   
 
 -¿De qué se trata la aventura? - preguntó Willow fingiendo desinterés. -¿y por qué me conoces?
 

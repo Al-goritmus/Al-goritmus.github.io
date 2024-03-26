@@ -635,7 +635,7 @@ Condujeron hasta un lago cercano y se bajaron en una zona sin árboles, la noche
 
 ![firstpic4](\img\posts\Mary 02.jpg)
 
-Se sentó en el césped y lo tocó con sus manos, estaba frío y ligeramente húmedo, se dejó envolver por la noche, danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad, entonces se detuvo y vio la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos como tratando de tocar esa luz fugaz.
+Se sentó en el césped y lo tocó con sus manos, estaba frío y ligeramente húmedo, se dejó envolver por la noche; danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad, entonces se detuvo para ver a la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos como tratando de tocar una estrella fugaz.
 
 -¡Esto es, es increíble! - Mary se puso de pie y se acercó a Wilson, le dió un largo abrazo de agradecimiento.-¡Gracias!
 

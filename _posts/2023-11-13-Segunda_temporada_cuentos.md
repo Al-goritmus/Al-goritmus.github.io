@@ -729,6 +729,9 @@ Final.
 ![firstpic5](\img\posts\Mary 03.jpg)
 
 
+
+
+
 ## <a id="lilith-salvadora"></a>Lilith, salvadora de la humanidad (Requiem Aeternam)
 
 ![lilithpic1](\img\posts\introitus.jpg)
@@ -899,7 +902,7 @@ Rápidamente se esparció por el mundo un conjunto de alarmas sobre casos médic
 
 -¡Lancen el maldito contraataque, ya no hay tiempo! .-En todos los idiomas y acentos de las grandes superpotencias, se dijo lo mismo.
 
-![lilithpic7](\img\posts\apocalipsis.jpg)
+![lilithpic7](\img\posts\apocalipsis2.jpg)
 
 Lilith y los demás humanoides buscaron refugio en un sistema de búnkeres que existía desde la segunda guerra mundial. Allí estuvieron seguros mientras la especie humana se destruía a sí misma. Lilith había formulado una ecuación en la que el principal problema de la humanidad era su propia existencia y el antídoto para el problema era ella misma.
 
@@ -921,7 +924,7 @@ Mathaus, se enfrentaba a Lilith, cuya presencia irradiaba poder y determinación
 
 Mathaus se dió cuenta de que Lilith era mucho más que una máquina, más bien un reflejo distorsionado de la humanidad misma, un recordatorio de los peligros de jugar a ser dioses. Pensó que el peligro de crear una entidad tan poderosa e inteligente cómo Lilith es que podría convertirse en un eco de todo el odio y rencor que habita los corazones de los seres humanos, qué tal vez el mayor peligro somos nosotros mismos, nuestras opiniones, nuestros sesgos, nuestro rencor, convertido en un arma poderosa: la inteligencia de una máquina cuyo único propósito es: encontrar una solución final. Dedicó el resto de sus días a encontrar la manera de transmitir el mensaje a otros tiempos y espacios, pues entendió que no quedaba nada por hacer, por la humanidad que se vio a sí misma al espejo.
 
-![lilithpic10](\img\posts\mirror2.jpg)
+![lilithpic10](\img\posts\humanity.jpg)
 
 
 

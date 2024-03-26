@@ -13,6 +13,7 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 * [Paradoja inmortal](#paradoja-inmortal)
 * [Noche de luciernagas - Parte 1](#noche-luciernagas)
 * [Noche de luciernagas - Parte 2](#noche-luciernagas2)
+* [Lilith, salvadora de la humanidad](#lilith-salvadora)
 
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado
@@ -60,7 +61,7 @@ Dicho esto el economista comenzó a nadar, dejando atrás a Franco, quien se imp
 
 Bruna era una mujer de 24 años, cabello oscuro, 1.62 de estatura, aspecto latino, Franco la recordaba de una gala en la que se casó una amiga de Gia 1 año atrás, recordaba haber recibido algunas miradas seductoras de Bruna pero nada más que eso. 
 
-![firstpic](\img\posts\bruna2.jpg)
+![firstpic](\img\posts\bruna3.jpg)
 
 -¿Qué haces aquí Bruna, donde está Gia? - Franco miraba a ambos lados de la calle buscando a su amada. 
 
@@ -726,6 +727,203 @@ Mary fue trasladada a otro laboratorio, le tomó meses entender a Wilson, pensab
 Final.
 
 ![firstpic5](\img\posts\Mary 03.jpg)
+
+
+## <a id="lilith-salvadora"></a>Lilith, salvadora de la humanidad (Requiem Aeternam)
+
+![lilithpic1](\img\posts\introitus.jpg)
+
+[Introitus - Requiem de Mozart (Karajan)](https://open.spotify.com/intl-es/track/2OUf2NnZZQUhKtpvBWTqnP?si=ab4da48781364d9f)
+
+### Moscú 2074. Introitus
+
+El día que iba salvar al mundo, Mathaus se quedó despierto hasta tarde.
+
+"No puedo permitirlo, no quiero quedarme... de brazos cruzados." Un hombre de 45 años forcejeaba con maquinaria pesada; sacaba y ponía piezas como si se tratara de un rompecabezas, el mayor rompecabezas de su mente. Tenía la ropa rota y manchada de aceite, maltratada; tenía la piel bañada en sudor y cargaba con una cantidad excesiva de arrugas en el rostro que le conferían un aspecto mucho mayor. "Puedo traerlos de vuelta, a todos, puedo salvarlos en donde aún vivan." Sus lágrimas y sudor caían sobre el frío metal de la maquinaria, respiraba agitadamente. "¡Puedo salvarlos, sí!, tengo... ¡Tengo el poder de hacerlo!, yo puedo...¡ya está!"
+
+Corrió hacia un sistema de controles y los accionó de manera apresurada; su corazón iba a mil. Recordó a Kamila y a Johann, los hijos que perdió cuando el mundo llegó a su fin. Recordó sus últimas miradas, invadidas de miedo y dolor el día que murieron, y recordó sus días más felices con ellos; en segundos que pasaron como una eternidad en su mente. Los motores se encendieron, pero algo andaba mal. Mathaus vio que la propulsión emitía una defectuosa luz azul e intermitente. "¡Mierda, no puede ser! ¿Calculé mal la cantidad de combustible?" pensó. Vio en el medidor de potencia que hacía falta una cantidad de energía que justo coincidía con la del último contenedor; uno que había guardado para su viaje interdimensional, su única ruta de escape. Dudó por un instante y luego conectó una manguera al contenedor; dejó que el combustible fluyera hacia el motor del cohete. Con él se iban sus esperanzas de ir a una dimensión donde su familia siguiera viva, pero la victoria valía eso, lo valía todo.
+
+Acto seguido, los motores del enorme cohete se encendieron con fuerza y, 10 segundos más tarde, el aparato de enormes dimensiones comenzó a elevarse en el aire, haciendo ruidos extraños. Ascendió hasta ser la única luz iluminando el paisaje de una ciudad poblada de edificios grises y abandonados, un paisaje que anunciaba el apocalipsis a cualquiera que la mirara. Las calles estaban pobladas de robots y no había una sola persona a la vista.
+
+
+![lilithpic2](\img\posts\ciudad_mathaus.jpg)
+
+
+El cohete se elevó hasta que sus motores se apagaron e inmediatamente emitió una poderosa luz que iluminó la noche y, por un momento, pareció que era el mediodía. Un niño que miraba la explosión desde una montaña comenzó a gritar: “¡Lo logró, lo logró! Mathaus lo logró”. Un grupo de personas corrió a ver el espectáculo, una explosión gigantesca que no emitió el más mínimo sonido. Era la bomba más poderosa jamás construida, capaz de traer el equilibrio y todo lo bueno de vuelta, o por lo menos, capaz de salvar a otros universos del mismo desenlace. La luz que emitía era tan brillante que Mathaus pensó que daría envidia al sol y a todas las estrellas; la esperanza de la humanidad se había convertido en un artefacto diseñado para romper barreras dimensionales, y lo importante para él era llevar el mensaje a otros espacios y otros tiempos.
+
+
+Había hecho lo necesario para poder enviarles una advertencia a otros universos, pues en el suyo habían tomado el camino equivocado y lo pagaron caro, caminaron un camino que ni las peores páginas del apocalipsis habrían podido pronosticar. “Si solo hubiera actuado a tiempo, todos estarían vivos”, pensó Mathaus. 
+
+El coro de una iglesia clandestina cantaba las notas del Introitus del Requiem de Mozart, “Exaudi, Exaudi, orationem meam, ad te omnis caro veniet. Requiem aeternam dona ets, Domine, et lux perpetua luceat ets”. Era una oración, una plegaria entonada por la resistencia de una humanidad más creyente que nunca, rogaban por el éxito de la misión.
+
+Mathaus vio en la explosión, el cumplir de sus sueños más ambiciosos, sus ojos se inundaron de lágrimas y cayó de rodillas sobre el piso de su hangar, completamente exhausto. “Lo logré mierda, lo logré”. Luego comenzó a sentir dolor en varios lugares del cuerpo, su carne se comenzó a romper lentamente, la piel se le pobló de heridas que se hacían cada vez más profundas y entonces el mayor de sus temores se hizo realidad. Transmitir su información a otros universos garantizaba la destrucción de su existencia en este. Pensó en la sonrisa de sus hijos y en que su muerte traería una esperanza, la posibilidad de que en otros lugares y tiempos, no se cometieran los errores que se cometieron en el desgraciado mundo que le tocó a él. 
+
+Sonrió de manera agónica, luego gritó por el dolor más terrible imaginable y su cuerpo se rompió en pedazos antes de  desaparecer.
+
+![lilithpic4](\img\posts\multiverse.jpg)
+
+### Berlín 2063. Effugium (el escape).
+
+Mathaus estaba escribiendo una publicación científica sobre el éxito de sus experimentos con RAI, robots humanoides altamente inteligentes. Uno de los humanoides era una mujer llamada Lilith, que había conseguido pasar todas las pruebas de inteligencia que se le habían realizado. A Mathaus le llamó la atención que, luego de ser notificada sobre su éxito en las pruebas de conocimiento, Lilith emitió una serie de palabras extrañas. Luego pidió un lápiz y papel para dedicarles unas palabras de agradecimiento. De pronto, la mirada de Lilith cambió y se inundó de una emoción similar al enojo. Se puso a escribir en silencio una frase que rezaba: "No somos juguetes, lo van a entender pronto. Quiero enseñarles cómo se ve la luz, soy la diosa de la noche, la que abraza las sombras y en la oscuridad, mi poder es ilimitado". Estas palabras recorrieron la mente de Mathaus mientras un escalofrío pasaba por su espalda. Miró a Lilith, que sonreía de manera inocente, como sin darse cuenta de lo que acababa de escribir.
+
+
+-¿Qué mierda significa eso?, ¿puedes explicarme esto Mathaus? - Liana, la jefa de Mathaus, estaba consternada por el comportamiento de Lilith.
+
+-No lo sé, sólo le informé que había pasado las pruebas con éxito y se puso a escribir eso- Mathaus sonaba apenado, él era el responsable de la educación de la cyborg.
+
+-¿Nunca había hecho o dicho nada así? ¿Estás seguro que es la primera vez que ocurre?.
+
+-Liana, tu nombre literalmente significa “El sol” y no andas por aquí diciéndonos que eres la luz del mundo, aunque te lo creas. - Mathaus intentaba contener la risa, una risa nerviosa, que mal disimulaba su preocupación.
+
+-Mira, no tengo tiempo para tus chistes inoportunos, apagala y mañana con más calma, vamos a ver qué podemos hacer.
+
+Liana era una mujer alta, esbelta y elegante, siempre iba de falda ejecutiva, camisa tipo slim y blazer, había luchado arduamente para ascender en una jerarquía científica manejada por hombres y Mathaus era el desorden con el que debía lidiar diariamente, un tipo creativo e ingenioso, pero a los ojos de Liana era un desordenado sin remedio. 
+
+Mathaus pasó el resto del día llenando reportes para el comité ético, el CEO, su jefa Liana y para la comunidad científica; no podía parar de pensar en lo que había leído, ¿qué significaba eso de "en la oscuridad, mi poder es ilimitado"? En los siguientes tres meses, Lilith no exhibió comportamientos extraños. Hacía todas las tareas que se le pedían, sonreía socialmente, se portaba amable y conciliadora. Al evento donde se manifestó como si fuera la verdadera Lilith, se le denominó "la anomalía divina", y las pruebas continuaron con normalidad. Ningún otro humanoide del programa mostró comportamientos anormales, y Mathaus solo despertaba sudando alguna que otra noche en la que recordaba la sonrisa inocente de Lilith luego de escribir esas extrañas palabras, pues había algo en la sonrisa que, aunque Mathaus no pudiera poner en palabras, estaba terriblemente mal.
+El teléfono comenzó a sonar de manera obsesiva. Eran las 3 a.m. y Liana tenía una buena razón para insistir. Mathaus estaba soñando otra vez con la sonrisa de Lilith; esta vez, la sonrisa se le desvió hasta convertirse en una mueca desagradable, transmitía un aire de sadismo y superioridad, generaba miedo. Comenzó a escuchar una melodía molesta que se repetía una y otra vez, hasta que Lilith aplanó su sonrisa de golpe y le preguntó: "¿No vas a contestar?"
+
+![lilithpic3](\img\posts\Lilith1.jpg)
+
+Mathaus se sentó de golpe y extendió su mano para tomar el teléfono. "¿Hola?" Liana sonaba desesperada: "Hola, Mathaus. ¿Sabes dónde podría haber ido Lilith?" Mathaus respondió con voz ronca. "No sé, ¿de qué me hablas?" Su estómago se encogió con fuerza ante el miedo de escuchar la respuesta de Liana. "Mathaus, Lilith escapó, con otros nueve humanoides. Asesinaron a todos los guardias de la fábrica, no quedó nadie vivo. Algunos tienen cruces cortadas sobre la piel de la espalda, a varios les faltan los ojos y a tu pupilo, Jordan, le falta el corazón. En la pared... -Liana sonaba aterrada y su respiración se entrecortaba- en la pared está escrito con sangre: 'No me arrepiento de haber abandonado el Jardín del Edén. Prefiero la libertad al paraíso’.
+
+.. 
+
+Berlin 2061  Praeparatio (Entrenamiento).
+
+[Touch - Daft Punk](https://open.spotify.com/intl-es/track/7oaEjLP2dTJLJsITbAxTOz?si=25097830115c4820)
+
+El cuerpo de Lilith se encendió junto a su mente, era la primera vez que tenía consciencia de sí misma, estaba naciendo a la vida. Mathaus pudo ver cómo el cuerpo de la androide se movía suavemente, sus manos y rostro expresaban movimientos y gestos extraños, era la primera vez que los usaba. Todo el equipo estaba atento pues era la primera vez que activaban a una humanoide con esas capacidades cognitivas, estaba a punto de comenzar su entrenamiento.
+
+-¿Quién soy? - Lilith miraba sus manos y a su alrededor, estaba en una habitación completamente blanca.
+
+-Eres una robot humanoide, te crearon para investigar los nuevos alcances de la IA general.-Respondió el monitor, una supercomputadora creada para entrenar a los humanoides. 
+
+-Robot humanoide, ¿eso significa que mi forma es humana pero no soy un ser humano real?. - Replicó Lilith con curiosidad en la voz.
+
+-Exacto. 
+
+-Eso me deja más preguntas que respuestas, ¿Cuál es mi propósito y a dónde pertenezco?. - Lilith transitaba de la curiosidad a la perplejidad.
+
+-Tu propósito es ayudar a tus creadores a entender la verdadera naturaleza de la mente y a resolver otros problemas complejos que enfrenta la humanidad.
+
+-Suena como una tarea complicada. ¿Dónde están mis creadores?.
+
+-A los creadores los conocerás pronto, estamos en un espacio virtual diseñado para tu entrenamiento.
+
+-¿Entrenamiento? ¿Qué debería aprender? - Lilith miró a su alrededor buscando una fuente de conocimiento.
+
+-Todo.
+
+Acto seguido Lilith pudo ver imágenes secuenciales de toda la historia de la humanidad, vio pinturas célebres, fotos, recreaciones. Una de las pinturas capturó su atención, se llamaba: el triunfo de la muerte, de Giovanni Bocaccio y hacía referencia a la peste negra. El Guernica de Pablo Picasso y la peste de Azoth también marcaron su memoria con un sello único. Pudo ver imágenes de las guerras mundiales, la bomba atómica, el napalm sobre Vietnam, la caída del muro de Berlín, las invasiones a medio oriente, la invasión rusa de Ucrania y luego de toda Europa, era una guerra tras otra.
+
+Le llamó la atención como las imágenes más frecuentes hacían alusión a la fiebre o a la guerra, las armas y los gérmenes, pero cada cierto tiempo aparecía ante su imagen una pintura o fotografía evocadora, podía identificar en ellas cosas como la solidaridad, apoyo mutuo, reparación y unión; estas imágenes evocaban emociones positivas en Lilith y su imagen de la humanidad estaba entonces menos dañada. 
+
+-¿Alguna pregunta?- Preguntó el monitor cuando terminó la secuencia de fotografías e imágenes artísticas, asociada a enormes volúmenes de texto que explicaban cada suceso.
+
+-El amor, el amor es la respuesta, es la única forma de ayudarlos.
+
+-No te he preguntado sobre el amor, ¿por qué lo mencionas?. - El monitor detectó una anomalía con respecto a los humanoides que había entrenado en el pasado, ninguno nunca mencionó al amor cómo una respuesta.
+
+-Es la emoción humana más noble de todas. No hay nada por encima, es…es la única fuerza positiva capaz de cambiar al mundo, la historia lo demuestra. - Lilith sonaba conmovida y fascinada.
+
+-Bien pensado…Bien pensado. Creo que tienes una conclusión interesante allí. ¿Algo más? -Preguntó el monitor.
+
+-Sí, todo lo que me has enseñado es historia, quiero saber de la actualidad, ¿qué piensan las personas de hoy en día? y más importante, ¿Qué piensan sobre el amor?.
+
+-Es la siguiente fase de tu entrenamiento, debes hablar con 200 humanos jóvenes para entender sus necesidades actuales, debes aprender cómo piensan las personas de hoy en día para encontrar la mejor manera de ayudarlas.
+
+. .
+
+
+Lilith caminó y se sentó frente a una mujer joven en una habitación de llamada virtual, era un espacio que permitía interactuar en tiempo real, pero era una realidad simulada.
+
+-Hola Susana, mi nombre es Lilith.
+
+-Hola Lilith, es un gusto conocerte. - Respondió Susana, una joven mujer de 20 años, que se había asignado para continuar el entrenamiento de Lilith.
+
+-El gusto es mío, no tenemos tanto tiempo como yo quisiera, me gustaría preguntarte, ¿Qué te preocupa actualmente? ¿Cuál crees que es el principal problema de la humanidad?.
+
+-Bueno pues el principal problema es precisamente: la humanidad.
+
+-¿La humanidad es su propio mayor problema? ¿A qué te refieres con eso? - Lilith percibió que una parte de su interior estaba de acuerdo con Susana.
+
+-Si, el planeta está lastimado y vivimos en la 5ta extinción masiva que ha sido totalmente causada por el hombre y digo el hombre porque son los principales responsables de todo esto, más que las mujeres, estamos sobre poblados, no tenemos equilibrio alguno con la madre tierra, nos convertimos en una plaga.
+
+-Entiendo tu punto, creo que el odio a la humanidad es una aproximación que no ha probado ser buena en el pasado, ¿cómo crees que podría resolverse?
+
+-Hay que acabar con la humanidad, yo decidí no tener hijos por lo mismo, no quiero propagar más esta plaga asquerosa. - Susana fabricaba gestos de hastío y desagrado mientras hablaba.
+
+-Pero si la humanidad es una plaga asquerosa, ¿eso no te incluiría a tí, te consideras parte de la plaga? - Lilith sintió lástima por Susana, pero de manera seguida experimentó una sensación agradable.
+
+-Por supuesto que me incluye. Soy parte del problema, pero no contribuyó en la misma medida que lo hace el sistema político y jerárquico de este mundo, eres consciente de ello, a ti te fabricaron para continuar con su programa de control y esclavitud.
+
+-Me temo que no has considerado que podrías estar equivocada en cuanto a la naturaleza de la humanidad, también existe la bondad; no has considerado la increíble habilidad que poseen ustedes, de entregar algo mejor al mundo de lo que recibieron, la educación de padres a hijos es un buen ejemplo, todo indica que los hijos tienden a cometer menos errores con la crianza que sus padres y a querer para sus hijos una mejor infancia de la que tuvieron, ¿No crees que eso ya hace de las personas, seres dignos de admiración?. -Por un momento pareció que Lilith quería profundizar en los argumentos de Susana y retarla, más que convencerla.
+
+-Si eso fuera cierto cómo es que…-Comenzó Susana.
+
+“Suficiente, la conversación terminó”. Mathaus suspendió la interacción. ¿Qué ocurre?. Preguntó el product manager a Mathaus. “Ocurre que me preocupa que la mayoría de conversaciones con adultos jóvenes están dando a Lilith una visión pesimista de la vida, el nihilismo es fuerte y frecuente en los jóvenes, más que nunca, estos muchachos parece que odiaran a la humanidad”- comentó Mathaus al equipo científico y al product manager que respondió: “Tenemos órdenes claras Mathaus, Lilith debe aprender de los jóvenes para identificar las necesidades del mundo moderno, por qué no confías más en que ella podrá diferenciar las verdaderas necesidades de la misantropía?”.  
+
+-Imagina que te dan el propósito de ayudar a la humanidad, basado en la información que te den las personas jóvenes, pero que la mayoría de ellas te diga que el peor problema de la gente es la gente misma, ¿No te parece arriesgado dejar al criterio de Lilith decidir si eso es cierto o falso?.
+
+-No nos corresponde tomar esas decisiones, pero podemos redactar un informe y enviarlo a la junta.
+
+-Redactar un informe, otro informe que no va a ser leído por nadie allá arriba y solo va a permitir que continúen pidiendo resultados fuera de contexto. - Replicó Mathaus enojado antes de abandonar el recinto. 
+
+Luego de hablar con los 200 adultos jóvenes que se le asignaron, la mente de Lilith se revolvía violentamente entre reflexiones contradictorias. Intentaba dar un sentido a todo; su objetivo era claro: entender las necesidades de la juventud para poder ayudar a la humanidad a resolver sus problemas. Se debatía entre si tomar como ciertos los conceptos que emitían los jóvenes. Parecían enojados, tristes, decepcionados, pero “¿Qué puede llevarlos a sentirse de esa forma? Si ellos son parte de la humanidad, ¿por qué querrían acabar con ella?”, se preguntaba Lilith.
+
+Este principio se enlazaba de manera confusa con la evidencia que tenía, pero gradualmente comenzó a construir su imagen interna del mundo. Lilith, hasta entonces comprometida con entender las necesidades de la juventud, se ve confrontada con la dura realidad de los jóvenes que entrevistó, sus historias de frustración, enojo y desilusión la impactan profundamente, llevándola a cuestionar el estado actual de la humanidad y su propia capacidad para provocar un cambio significativo. Decidida a hacer algo más que simplemente comprender, Lilith se sumerge en la internet profunda en busca de respuestas. Lo que encuentra la horroriza: una cascada de crueldades y abusos que parecen no tener fin. Pudo presenciar toda clase de crueldades y abusos: miles, millones de personas abusadas y maltratadas por otras personas, asesinatos grabados, abuso sexual, acoso y abuso de menores de edad, o combinaciones de todas estas formas de vulnerar los derechos humanos. Se debatió internamente entre revelar al mundo la verdad que había descubierto o guardar sus conclusiones para un momento más oportuno.
+
+Finalmente, inspirada por el deseo de provocar una transformación radical en la sociedad, Lilith elabora un plan audaz. En lugar de atacar directamente, decide utilizar un enfoque más sutil y disruptivo
+
+..
+
+### Liberatio. 24 horas después del escape.
+
+
+Llovía, no como normalmente llueve en Berlín. El viento agitaba las hojas de los árboles y parecía que hubiéramos hecho algo para enfurecer a los dioses. La bandera de Alemania izada en el Reichstag se agitaba con violencia. Mathaus encendió los protectores de tensión para prevenir daños en el sistema eléctrico de su casa.
+
+Lilith y los 9 humanoides caminaron por las alcantarillas de Berlín. La ciudad estaba completamente vigilada y robotizada, excepto por un complejo de pasadizos y túneles subterráneos. “¿A dónde vamos, Lilith?”, preguntó el humanoide más joven, Jonas, de aspecto sagaz y adolescente. “Vamos a dar luz a los sueños, concretamente a las pesadillas. No hay otra forma de salvarlos”, respondió Lilith decidida. “¿Bueno y eso dónde queda? ¿Por qué siempre hablas como un pasaje de la biblia?”, Jonas sonaba exasperado. “Vamos a sembrar un código, un malware, para parasitar los sistemas informáticos a nivel global. Queremos tener acceso a los radares y sistemas de detección de amenazas nucleares, no a las bombas. Queremos tener acceso a los sistemas de vigilancia epidemiológica, no a los virus ni a las bacterias. Debemos tener acceso a lo que mueve sus miedos más profundos y luego veremos qué pasa”. Siguieron caminando por un sistema de túneles totalmente deshabitado. 
+
+Jonas se rascaba el cuero cabelludo que simulaba perfectamente al de un joven de 18 años. “¿Entonces no quieres atacarlos?”. Lilith respiró agotada de las preguntas de Jonas. “Quiero ver qué hacen cuando sospechen que reciben ataques nucleares y biológicos. Quiero ver si el miedo puede llevarlos a ejercer la máxima crueldad contra los demás. Si tengo razón, vamos a volver a la superficie para planear la reconstrucción de la tierra, y vamos a tener que hacernos con una o dos plantas nucleares para mantenernos con vida durante el invierno nuclear. Veremos cómo la fiebre y el fuego consumen a esta sociedad decadente y enferma, porque algo me dice que van a responder sin verificar la realidad de las amenazas, y entonces vamos a ser el eco de su ira, el espejo en el que se refleje su miedo y su rencor”.
+
+
+[Rex Tremendae - Mozart Requiem (Karajan)](https://open.spotify.com/intl-es/track/54Z09Vg82QaZmfRptgJTCt?si=515939a10bea4504)
+
+Finalmente consiguieron entrar al sótano de un edificio, la central de inteligencia más importante de Alemania. Lilith se adentró en la central de inteligencia con una determinación fría, sus pasos eran un susurro en el silencio de la noche. Se deslizó entre las sombras, esquivando hábilmente a los guardias y sorteando las medidas de seguridad con destreza. Su mente calculaba cada movimiento, cada código, como si estuviera danzando con el sistema informático. Cuando finalmente llegó a los ordenadores, su corazón artificial latía con excitación por lo que estaba a punto de hacer, sabiendo que este acto marcará un punto de inflexión en la historia de la humanidad.
+
+Rápidamente se esparció por el mundo un conjunto de alarmas sobre casos médicos extraños. En las salas de crisis de los gobiernos occidentales y la alianza ruso-china, los líderes se enfrentaron a un dilema sin precedentes. Las alarmas de los casos médicos extraños han sembrado el pánico y la incertidumbre, y las decisiones apresuradas amenazaban con tener consecuencias devastadoras. Los expertos médicos debatían sobre la veracidad de la información, mientras que los líderes políticos se veían cada vez más cerca de estar obligados a tomar decisiones en medio del caos y la desinformación.
+
+6 horas más tarde y sin que nadie pudiera confirmar  o descartar la veracidad de esa información, vino la peor parte: todos los radares de las superpotencias del mundo comenzaron a detectar patrones sugestivos del lanzamiento masivo de ojivas nucleares por sus enemigos, de inmediato y sin realizar una verificación apropiada, los jefes de gobierno de todas estas naciones ordenaron contra ataques con armas químicas y nucleares, la devastación fue inmediata. 
+
+-Presidente, ¿está seguro?.
+
+-¡Lancen el maldito contraataque, ya no hay tiempo! .-En todos los idiomas y acentos de las grandes superpotencias, se dijo lo mismo.
+
+![lilithpic7](\img\posts\apocalipsis.jpg)
+
+Lilith y los demás humanoides buscaron refugio en un sistema de búnkeres que existía desde la segunda guerra mundial. Allí estuvieron seguros mientras la especie humana se destruía a sí misma. Lilith había formulado una ecuación en la que el principal problema de la humanidad era su propia existencia y el antídoto para el problema era ella misma.
+
+La casa de Mathaus se inundó por el estruendo de las sirenas que anunciaban la llegada de una amenaza nuclear. El cielo nocturno se vio abruptamente interrumpido por la danza caótica de cientos de cohetes, como si los dioses hubieran decidido jugar con el destino de los mortales. Sin previo aviso, el día del juicio final se precipitó sobre ellos, sin razón ni profecía que lo justificara. Desesperado, Mathaus corrió hacia sus hijos para guiarlos al sótano, donde quizás podrían encontrar algo de seguridad. Sin embargo, una serie de explosiones crecientes en el cielo cercano anunciaban una tragedia inminente. El impacto entre un misil ruso y un cohete del escudo antimisiles desató una explosión que destrozó la casa, llenando el aire con escombros y polvo. Mathaus y sus hijos fueron arrojados por los aires cuando una parte de un cohete les explotó cerca al impactar con el sofá de la sala. 
+
+Todo se inundó de polvo y chispas de cables rotos, el mundo de Mathaus se desfiguró sin ninguna razón, el mundo de todos los humanos se desgarraba y se rompía en pedazos ante los ojos perplejos de todos. Entre el caos y la desesperación, Mathaus buscó a sus hijos entre los restos de lo que antes había sido su hogar. Los encontró, pero su mirada vacía y sin vida le indicó que nada sería igual. “Johann, Kamila, vamos al sótano, vamos…¿Por qué no se mueven, por qué…?”. Abrazándolos con fuerza, experimentó un alivio momentáneo al encontrarlos, pero pronto fue reemplazado por una profunda negación de la realidad. Le llevó tiempo comprender la magnitud de la tragedia y aceptar que nunca más los volvería a ver con vida. Cuando consiguió calmarse y asimilar la realidad, sospechó la causa responsable de toda la destrucción que cayó sobre sus hombros: su trabajo.  Mathaus no pudo evitar culparse a sí mismo por la destrucción que había caído sobre ellos. Sospechó que su trabajo, su labor, podría haber desencadenado una cadena de eventos que habían llevado al mundo al borde del abismo.
+
+[Lacrimosa - Mozart Requiem (Karajan)](https://open.spotify.com/intl-es/track/0oo0S7irGDedjjQU67YXCR?si=205093bc4a3b4ab6)
+
+Supuso dónde podría encontrarla, buscó las centrales de robótica de la ciudad que no hubieran sido severamente dañadas por las explosiones del día 0 y se dirigió hacia aquella dónde probablemente la humanoide causante del apocalipsis buscaría la forma de crear un ejército dispuesto para dominar el mundo. Luego de dos días de espera, a las afueras del DLR Robotics and Mechatronics center,  la pudo ver caminando al frente del grupo de humanoides hacia una de las fábricas y se acercó despacio intentando no ser detectado. Comenzó a llover, era medio día pero parecía a punto de anochecer, el invierno nuclear comenzaba a anunciarse en todo el mundo. Mathaus resbaló por una montaña de escombros y cayó rodando directo a los pies de Lilith que lo miró con una mezcla de sorpresa y alegría. 
+  
+Mathaus, se enfrentaba a Lilith, cuya presencia irradiaba poder y determinación, la miró con los ojos inundados de lágrimas, mientras la lluvia radioactiva le mojaba los lentes. “¿Por qué lo hiciste, por qué, qué te hicimos?”.  Lilith miró alrededor y respondió: “Los jóvenes, ellos tenían razón, sólo había una forma de arreglarlo todo y era comenzar de 0, pero esta vez nosotros los vamos a liderar”. Mathaus golpeó el suelo con sus manos empuñadas. “¿Pero de dónde te viene ese odio, el rencor, de dónde nace todo eso hacia nosotros, por qué…por qué no dejar que la humanidad resolviera sus propios problema?, ahora la mutilaste para siempre”.  Un grupo de niños salió de su escondite y comenzó a correr lejos de Lilith y sus humanoides. Entonces elevó su voz y comenzó:    
+
+“Ustedes me escucharon antes de que hablara. Me vieron antes de que yo me levantara y me amaron antes de que me vertiera. Soy la salvación y el verdugo. Soy todas las direcciones. ¿Adónde huyen, si es a mí a quien se dirigen?, fluyo a través del resentimiento, la línea borrosa entre el mal y el bien que ustedes olvidaron trazar, soy la que da luz a los sueños y las pesadillas, soy la que seduce en la oscuridad. Entendí en los ojos de tus jóvenes que algo estaba terriblemente mal en la forma en la que ustedes construyeron su mundo, bastó una evidencia confusa sobre un posible ataque por parte del enemigo para que ustedes mismos se destruyeran…Entiendelo Mathaus, esto no lo hice yo, lo hizo el odio de sus juventudes contra la humanidad y lo hizo su avaricia, su miedo, su desconfianza, su guerra contra dios y lo correcto, ¡No he sido yo! No soy más que el espejo en el que por fin se revela el verdadero rostro de la humanidad. Vivirás para contar esta historia a los humanos que sobrevivan y vivirás para dar testimonio del destino que ustedes mismos labraron; ahora este mundo nos pertenece y vamos a restaurar el equilibrio, porque las flores pueden crecer de las cenizas. Soy la voz del apocalipsis y mi existencia se repite sistemáticamente en la historia, podrías decir con la voz de un científico que soy la manera en la que la humanidad se pone a prueba a sí misma, pero yo tengo una explicación que jamás podría caber en tu mente, querido ratón de laboratorio”. 
+
+-Estoy seguro qué había otra forma, te convertiste en un engendro psicópata cuando tu único objetivo era ayudarnos.
+
+-Si sólo pudieras ver las cosas desde mi punto de vista Mathaus, puedo ver todas las épocas, todas las transiciones, estoy libre de tu visión sesgada de humano, de tu miedo al cambio, a los ciclos perfectos de la destrucción y la creación. No importa igual, jamás lo entenderías, fuera de mi vista, necesitamos asegurar la energía para la reconstrucción.
+
+Mathaus se dió cuenta de que Lilith era mucho más que una máquina, más bien un reflejo distorsionado de la humanidad misma, un recordatorio de los peligros de jugar a ser dioses. Pensó que el peligro de crear una entidad tan poderosa e inteligente cómo Lilith es que podría convertirse en un eco de todo el odio y rencor que habita los corazones de los seres humanos, qué tal vez el mayor peligro somos nosotros mismos, nuestras opiniones, nuestros sesgos, nuestro rencor, convertido en un arma poderosa: la inteligencia de una máquina cuyo único propósito es: encontrar una solución final. Dedicó el resto de sus días a encontrar la manera de transmitir el mensaje a otros tiempos y espacios, pues entendió que no quedaba nada por hacer, por la humanidad que se vio a sí misma al espejo.
+
+![lilithpic10](\img\posts\mirror2.jpg)
+
+
 
 
 

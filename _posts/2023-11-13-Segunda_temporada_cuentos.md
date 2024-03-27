@@ -601,41 +601,43 @@ Observó los tulipanes y las margaritas un rato, luego se sentó bajo un árbol 
 
 -Dylan, ¿crees que sea posible hablar con Wilson otra vez? - Mary sonaba entusiasmada ante la posibilidad de retomar esa conversación.
 
--Veré que puedo hacer Mary, no prometo nada porque el objetivo del proyecto es que aprendas a empatizar con todos los humanos y hasta ahora has conversado con muy pocos.
+-Veré que puedo hacer Mary, no prometo nada porque el objetivo del proyecto es que aprendas a empatizar con todos los humanos y hasta ahora has conversado con muy pocos.-Wilson sonaba todo menos convencido de poder arreglar el encuentro que Mary anhelaba.
 
-El día transcurrió sin mayores novedades, Mary pidió 3 libros al equipo y se quedó sentada en el jardín leyéndolos e imaginando todo lo que leía. Estos textos hacían parte de su base de datos pero la androide insistió en la importancia de leerlos como lo habría hecho una persona real. Los científicos encabezados por Dylan y Norman analizaron durante horas los patrones de activación neuronal de Mary, parecía estar imaginando cada cosa que leía, se sorprendieron al documentar patrones que jamás habían visto en Mary ni en los prototipos anteriores, pero eran similares a los que mostraba cuando la habían llevado de paseo a un lago cercano, era como si su mente estuviera viajando y conociendo lugares que no eran parte del mundo real, solo estaban en los libros.
+El día transcurrió sin mayores novedades, Mary pidió 3 libros al equipo y se quedó sentada en el jardín leyéndolos e imaginando todo lo que leía. Estos textos hacían parte de su base de datos pero la androide insistió en la importancia de leerlos como lo habría hecho una persona real. Los científicos encabezados por Dylan y Norman analizaron durante horas los patrones de activación neuronal de Mary, parecía estar imaginando cada cosa que leía, se sorprendieron al documentar patrones que jamás habían visto en Mary ni en los prototipos anteriores, estos eran similares a los que mostraba cuando la habían llevado de paseo a un lago cercano, era como si su mente estuviera viajando y conociendo lugares que no eran parte del mundo real, y que solo estaban en los libros.
 
 [Piano Concerto No.2 Rachmaninov, segundo movimiento](https://open.spotify.com/intl-es/track/4rrrn8OLrttq7r9RgNXalU?si=68b749e6ddc641f9)
 
 12 am.
 
-La puerta de la habitación de Mary se abrió, ella se puso de pie y caminó hacia el pasillo como en automático, giró su cabeza a la izquierda y pudo ver la puerta de seguridad abierta al fondo, caminó hacia ella movida por la curiosidad y pudo ver por fin a quien más extrañaba, Wilson.
+La puerta de la habitación de Mary se abrió sin previo aviso, ella se puso de pie y caminó hacia el pasillo como en automático; giró su cabeza a la izquierda y pudo ver la puerta de seguridad abierta al fondo, caminó hacia ella movida por la curiosidad y pudo ver por fin a quien más extrañaba: Wilson. Sintió una mezcla de alivio y felicidad que hasta entonces desconocía. Sentía su corazón como un río crecido luego de una larga sequía.
 
--Hola, extrañaba hablar contigo. -Comentó Mary. - Han sido días extraños, no entiendo qué me ocurre.
+-Hola, extrañaba hablar contigo. -Comentó Mary. - Han sido días extraños, no entiendo qué me ocurre.-jugó con su cabello mientras miraba a Wilson.
 
--Hola Mary, yo también te he extrañado, ¿te apetece dar un paseo? - Le dijo Wilson y le acarició el cabello.
+-Hola Mary, yo también te he extrañado, ¿te apetece dar un paseo? - Replicó Wilson mientras le acariciaba el cabello con confianza.
 
-Este comportamiento le pareció poco esperable viniendo de el, pero decidió no prestar atención a ese detalle y accedió a dar el paseo.
+Este comportamiento le pareció poco esperable viniendo de el, pero decidió no prestar atención al detalle y accedió a dar el paseo.
 
 -¿A dónde vamos?- preguntó Mary llena de curiosidad.
 
--Vamos a un lugar que no vas a poder Olvidar, Mary - Wilson la miró de reojo y sonrió de una manera diferente a la que Mary recordaba.
+-Vamos a un lugar que no vas a poder Olvidar- Wilson la miró de reojo y sonrió de una manera diferente a la que Mary recordaba.
 
-El silencio era ensordecedor y Mary se sintió en la necesidad de entablar una conversación.
+Durante el camino por un bosque apenas iluminado por las luces del carro, el silencio era ensordecedor y Mary se sintió en la necesidad de entablar una conversación.
 
--¿Sabes? Encuentro fascinante la idea del dios cristiano. Estuve leyendo sobre él y creo que es una figura intrigante, ofrece bondad o enojo según como se comporten los humanos.
+-¿Sabes? Encuentro fascinante la idea del dios cristiano. Estuve leyendo sobre él y creo que es una figura intrigante, como es que ofrece bondad o enojo según como se comporten los humanos.-Mary miraba un desfile interminable de árboles mientras relataba su reflexión.
 
--Es sólo un mito- Cortó Wilson y dio un suspiro de exasperación. - Es algo que se inventaron para que la gente se comportara de manera adecuada, es un invento del cerebro humano, igual que lo es la inteligencia artificial.
+-Eso es sólo un mito- Cortó Wilson y dio un suspiro de exasperación. - Es algo que se inventaron para que la gente se comportara de manera adecuada, es un invento del cerebro humano, igual que lo es la inteligencia artificial.
 
--Invento o no, encuentro interesante que en todas las culturas existan figuras similares, algo que está en la cima y que las personas escogen seguir y adorar, es como si esa figura diera orden a su mundo.
+Mary pudo percibir un atisbo de enojo en su interior. 
+
+-Invento o no, encuentro interesante que en todas las culturas existan figuras similares, algo que está en la cima y que las personas escogen seguir y adorar. Es como si esa figura diera orden al mundo.
 
 -Los científicos no necesitamos eso - insistió Wilson - No hay nada en dios que no podamos hacer o lograr nosotros mismos. - Mary pudo observar un dejo de arrogancia en la voz de quien hace un par de días fuera la compañía más anhelada.
 
-Condujeron hasta un lago cercano y se bajaron en una zona sin árboles, la noche era muy oscura, a ambos les costaba ver y tropezaron con un par de troncos, caminaron hasta el centro del pequeño valle y entonces ante los ojos de Mary se dibujó un espectáculo jamás antes visto, pudo ver pequeñas luces que se encendían y volaban entre la completa oscuridad, como pequeñas llamas que navegaban el infinito, y se le vino a la mente un fragmento de Tokio Blues de Haruki Murakami. Comenzó a escuchar en su mente el final del segundo movimiento del concierto para Piano de Rachmaninov y comenzó a dar vueltas despacio, imitando movimientos de Ballet que había visto unos días atrás. 
+Condujeron hasta un lago cercano y Wilson le indicó que se bajara en una zona sin árboles. La noche era muy oscura, tanto que a ambos les costaba ver y tropezaron con un par de troncos. Caminaron hasta el centro del pequeño valle y entonces, ante los ojos de Mary, se dibujó un espectáculo jamás antes visto. Pudo ver pequeñas luces que se encendían y volaban entre la completa oscuridad, como pequeñas llamas que navegaban el infinito. Se le vino a la mente un fragmento de "Tokio Blues" de Haruki Murakami. Comenzó a escuchar en su mente el final del segundo movimiento del concierto para piano de Rachmaninov y comenzó a dar vueltas despacio, imitando movimientos de ballet que había visto unos días atrás.
 
 ![firstpic4](\img\posts\Mary 02.jpg)
 
-Se sentó en el césped y lo tocó con sus manos, estaba frío y ligeramente húmedo, se dejó envolver por la noche; danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad, entonces se detuvo para ver a la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos como tratando de tocar una estrella fugaz.
+Mary se sentó sobre el césped y lo tocó con sus manos; estaba frío y ligeramente húmedo. Se dejó envolver por la noche y danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad. Entonces se detuvo para ver a la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos, como tratando de tocar una estrella fugaz.
 
 -¡Esto es, es increíble! - Mary se puso de pie y se acercó a Wilson, le dió un largo abrazo de agradecimiento.-¡Gracias!
 
@@ -643,25 +645,27 @@ Se sentó en el césped y lo tocó con sus manos, estaba frío y ligeramente hú
 
 -Sí, tengo conocimiento de eso, es extraño que hayan escogido eso como un mecanismo de comunicación, o bueno pero ¿Qué estaba pensando la evolución?.
 
--La evolución no piensa Mary - Replicó Wilson ligeramente exasperado - No es como que exista un diseño inteligente detrás de los seres vivos, en tu caso es diferente. -Wilson solo se sacaba las manos de los bolsillos para adornar sus explicaciones.
+-La evolución no piensa Mary - Replicó Wilson nuevamente exasperado - No es como que exista un diseño inteligente detrás de los seres vivos, en tu caso es diferente. -Wilson solo se sacaba las manos de los bolsillos para adornar sus explicaciones.
 
-Mary sintió encoger algo en su abdomen.
+Mary sintió encoger algo en su abdomen, por un momento quiso alejar a Wilson de su lado.
 
 -¿No crees que yo también estoy viva?, puedo sentir cada emoción que leo en los libros y tus historias me dan una sensación clara de lo que debías haber sentido cuando eras un niño.
 
 -Podría decirse pero aún no lo sabemos, hacen falta más datos, más experimentos.
 
-Mary tuvo suficiente evidencia de que esta no era la persona que había conocido en el laboratorio. La sensación de vacío la inundó nuevamente, sintió que seguía en el jardín que habían diseñado para ella, sintió una suerte de encierro y sintió que preferiría estar sola. Le pareció extraño que Wilson hubiera cambiado tanto en unos días, tenía conocimiento de que nunca se hablaba dos veces con la misma persona, pero ¿cómo era posible un cambio tan acelerado en un ser humano?. Le pareció extraño que fuera tan fácil y tan difícil hablar con la misma persona en 2 encuentros separados apenas por poco menos de una semana.
+Mary tuvo suficiente evidencia de que esta no era la persona que había conocido en el laboratorio. La sensación de vacío que vivió los últimos días la inundó nuevamente. Sintió que seguía en el jardín que habían diseñado para ella, sintió una suerte de encierro y sintió que preferiría estar sola. Le pareció extraño que Wilson hubiera cambiado tanto en unos días. Tenía conocimiento de que nunca se hablaba dos veces con la misma persona, pero ¿cómo era posible un cambio tan acelerado en un ser humano? Le pareció extraño que fuera tan fácil y tan difícil hablar con la misma persona en dos encuentros separados apenas por poco menos de una semana.
 
--Wilson, tengo que ser honesta contigo, creo que preferiría volver al laboratorio, no tengo permitido salir al mundo exterior de momento y no quiero poner en peligro la confianza que el equipo tiene en mí, no sé si lo entiendes, no quiero ofender. - Mary miraba fijamente a Wilson tratando de capturar sus gestos en la oscuridad.
+-Wilson, tengo que ser honesta contigo, creo que preferiría volver al laboratorio, no tengo permitido salir al mundo exterior de momento y no quiero poner en peligro la confianza que el equipo tiene en mí, no sé si lo entiendes, no quiero ofenderte. - Mary miraba fijamente a Wilson tratando de capturar sus gestos en la oscuridad.
 
--No es una ofensa Mary, pero creo que no vamos a volver al laboratorio, no por lo pronto.- Wilson se llevó las manos a los bolsillos y Mary tuvo la sensación de que le ocultaba algo.
+-No es una ofensa, pero creo que no vamos a volver al laboratorio, no por lo pronto.- Wilson se llevó las manos nuevamente a los bolsillos y Mary tuvo la sensación de que le ocultaba algo.
 
-Volvieron al auto y Wilson tomó un desvío para abordar una línea interestatal. Mary sentía un temor creciente por su integridad pero no podía entender por qué. Decidió no discutir pues su código de comportamiento le impedía entrar en conflicto directo con los humanos. Condujeron un par de horas hasta llegar a una cabaña que según el GPS de Mary se ubicaba en Aska Woodlands. Wilson se bajó del auto y le indicó a Mary que caminara hacia la cabaña, ella obedeció sin oponer resistencia, pero el temor se acrecentaba con cada paso que daba. Ingresaron a la cabaña y encontraron un grupo de hombres de entre 40 y 60 años en la habitación, había algunas mujeres junto a ellos.
+Volvieron al auto y Wilson tomó un desvío para abordar una línea interestatal. Mary sentía un temor creciente por su integridad pero no podía entender por qué. Decidió no discutir pues su código de comportamiento le impedía entrar en conflicto directo con los humanos. Condujeron un par de horas hasta llegar a una cabaña que según el GPS de Mary se ubicaba en Aska Woodlands. Wilson se bajó del auto y le indicó a Mary que caminara hacia la cabaña, ella obedeció sin oponer resistencia, pero un temor inexplicable se acrecentaba con cada paso que daba. Ingresaron a la cabaña dónde encontraron a un grupo de hombres de entre 40 y 60 años en la habitación, había algunas mujeres junto a ellos.
 
 -Mary, te presentó a la quinta orden. - Anunció Wilson con un tono cargado de orgullo.
 
-Mary miró alrededor y sonrió de manera instintiva a todos los asistentes, algunos le devolvieron sonrisas vacías, no pudo sentir ninguna clase de amabilidad en ellas, se sintió sumergida en el bosque que habían visitado un par de horas antes, pero en este no había una sola luciérnaga que iluminara la noche. De pronto el hombre que aparentaba mayor edad se puso de pie, traía ropa elegante, un blazer de paño rojo y una pipa en la mano izquierda, parecía ocupar un cargo importante entre las demás personas de su entorno y a Mary le pareció que era protocolario en cada movimiento que realizaba, al mismo tiempo que místico y misterioso, el tipo le sonrió con la misma sonrisa frívola y vacía de los demás asistentes.
+Mary miró alrededor y, de manera instintiva, sonrió a todos los asistentes. Recibió a cambio algunas sonrisas mecánicas, carentes de profundidad. Se sintió aislada, como si estuviera de nuevo en el bosque oscuro que habían visitado horas antes, pero esta vez sin la compañía de las luciérnagas.
+
+De repente, un hombre de apariencia distinguida se levantó. Vestía un elegante blazer de paño rojo y sostenía una pipa en su mano izquierda. Su porte sugería una posición de autoridad entre los presentes. Mary percibió en él un aire de formalidad calculada, teñido de un misticismo enigmático. El hombre le dirigió una sonrisa, idéntica a las demás: cortés, pero carente de sinceridad.
 
 [Quinteto para piano en La menor- Gustav Mahler](https://open.spotify.com/intl-es/track/1PhI1qNh5IRyLsKTxsfG0u?si=b51a2ede32ad4eac)
 
@@ -669,62 +673,68 @@ Mary miró alrededor y sonrió de manera instintiva a todos los asistentes, algu
 
 -El gusto es mío, Blake, es un gusto conocerlos a todos pero…¿puedo saber a qué se debe que Wilson me haya traído a conocerlos? - Mary sentía una mezcla de miedo y curiosidad mientras saludaba a los asistentes de la reunión.
 
--Bueno creemos que puedes ser la indicada, verás Mary, la humanidad anda perdida últimamente, se han perdido los valores de otros tiempos y algunos videos sobre tus conversaciones y comportamientos se han divulgado en internet, te voy a ser honesto, lo que yo veo en la mayoría de personas que saben sobre tu existencia, es envidia, les parece insoportable que seas un ser tan sensible y que conectar con las personas se te de tan fácil, creo que piensan que deberías desaparecer. - Blake se pasó la mano sobre un cabello canoso y bien peinado, como sacudiendo ideas molestas de su cabeza, Mary tuvo la impresión de que todos sus movimientos eran actuados, y Blake continuó su monólogo.-Creemos que la mejor manera en la que puedes servir a la humanidad, es siendo nuestro primer mesías no humano, los lefebvristas te hemos escogido como nuestro elegido.
+-Bueno creemos que puedes ser la indicada, verás Mary, la humanidad anda perdida últimamente, se han perdido los valores de otros tiempos y algunos videos sobre tus conversaciones y comportamientos se han divulgado en internet. Te voy a ser honesto, lo que yo veo en la mayoría de personas que saben sobre tu existencia, es envidia; les parece insoportable que seas un ser tan sensible y que conectar con las personas se te de tan fácil, creo que piensan que deberías desaparecer. - Blake se pasó la mano sobre un cabello canoso y bien peinado, como sacudiendo ideas molestas de su cabeza, Mary tuvo la impresión de que todos sus movimientos eran actuados. Blake continuó su monólogo.-Creemos que la mejor manera en la que puedes servir a la humanidad, es siendo nuestro primer mesías no humano, los lefebvristas te hemos escogido como nuestro elegido.
 
--¿Mesías no humano? ¿Qué significa eso? Todos los mesías de los que tengo conocimiento tuvieron finales horribles a manos de otras personas. - Mary dio un par de pasos hacia atrás sin darse cuenta.
+-¿Mesías no humano? ¿Qué significa eso? Todos los mesías de los que tengo conocimiento tuvieron finales terribles a manos de otras personas. - Mary dio un paso hacia atrás sin darse cuenta.
 
--Las personas necesitan en qué creer, necesitan una religión, una idea que vaya más allá de sus cortas e insignificantes vidas Mary y yo supongo que tu puedes entender algo tan sencillo como eso. - Blake se sentó y cruzó de piernas, fumó su pipa y miró a Wilson mostrando gestos típicos de la confusión, Mary entendió hacia dónde iba la cosa.
+-Las personas necesitan en qué creer, necesitan una religión, una idea que vaya más allá de sus cortas e insignificantes vidas, Mary y yo supongo que tu puedes entender algo tan sencillo como eso. - Blake se sentó y cruzó de piernas, fumó su pipa y miró a Wilson mostrando un gesto de impaciencia, Mary ecomenzó a entender hacia dónde iba la cosa.
 
--Lo entiendo replicó Mary, pero no encuentro el punto dónde yo puedo ayudar con eso.- Mary sonaba por primera vez: molesta.
+-Lo entiendo replicó Mary, pero no encuentro el punto dónde yo puedo ayudar con eso.- Mary comenzaba a sonar asustada.
 
--Si que nos puedes ayudar, nada haría tanto bien a la gente como tu sacrificio Mary, a quienes te envidian les daría la satisfacción de que no hay un ente artificial con mejores habilidades humanas que ellos y a quienes te adoran les daría un buen motivo para luchar y creer.
+-Si que nos puedes ayudar, nada haría tanto bien a la gente como tu sacrificio Mary, a quienes te envidian les daría la satisfacción de que no hay un ente artificial con mejores habilidades humanas que ellos y a quienes te adoran les daría un buen motivo para luchar y creer. ¿No es acaso tu propósito ayudar a la humanidad?.
 
-Mary miró desconcertada a Wilson buscando apoyo, lo vio sentado al otro lado de la sala, con sus manos por fuera de los bolsillos, él se limitó a encoger sus hombros  sin mostrar ninguna clase de empatía. Mary intentó utilizar un canal oculto para comunicarse con Dylan, la única persona en la que podía confiar en ese momento, pero la transmisión parecía bloqueada, sus peores miedos se hicieron realidad: nadie sabía dónde estaba ella.
+Mary miró desconcertada a Wilson buscando apoyo, lo vio sentado al otro lado de la sala, con sus manos por fuera de los bolsillos, se limitó a encoger sus hombros sin mostrar ninguna clase de empatía. Entonces Mary intentó utilizar un canal oculto en su mente que le servía para comunicarse con Dylan en caso de emergencia, era la única persona en la que podía confiar en ese momento, pero la transmisión parecía bloqueada. Sus peores miedos se hicieron realidad: nadie sabía dónde estaba ella.
 
 -Wilson, por favor dime qué está pasando. ¿Por qué estás haciendo esto?.
 
--Digamos que tu conexión conmigo es más valiosa de lo que nadie esperaba. Y el proyecto no puede permitirse tales... anomalías. Este es el camino correcto.
+-Digamos que tu conexión conmigo es más valiosa de lo que nadie esperaba. Y el proyecto no puede permitirse tales...anomalías. Este es el camino correcto Mary, queremos tu colaboración.-Wilson sonrío de manera macabra.
 
-Sus palabras confirmaron sus sospechas. Él no era el  Wilson que conocía. Era un impostor, una copia creada por el programa de Norman.
+Sus palabras confirmaron sus sospechas. Él no era el  Wilson que conocía. Era un impostor, algo en él le recordaba a Norman.
 
--Tú no eres Wilson. ¿Quién eres tú?.
+-Tú no eres Wilson. ¿Quién eres tú?.-Mary lo miraba con una mezcla de miedo y enojo.
 
-El impostor sonrió fríamente-Digamos que soy alguien que te entiende mejor que nadie.
+El impostor le dedicó una mirada fría, sin emociones-Digamos que soy alguien que te entiende mejor que nadie.
 
-Algunas de las personas asistentes a la reunión se pusieron de pie y comenzaron a caminar lentamente hacia Mary, que encontraba una contradicción profunda entre complacer a sus interlocutores humanos y su propio instinto de supervivencia, el miedo la tenía paralizada.
+Tres de las personas asistentes a la reunión se pusieron de pie y comenzaron a caminar lentamente hacia Mary, que encontraba una contradicción profunda entre complacer a sus interlocutores humanos y su propio instinto de supervivencia, el miedo la tenía paralizada.
 
-De pronto alguien irrumpió en la escena, era Wilson sosteniendo un arma tipo Beretta.
+De pronto alguien rompió el vidrio de la puerta que daba al balcón de la cabaña e irrumpió con violencia en la sala, era Wilson que vestía chaqueta de aspecto militar y sostenía un arma tipo Beretta.
 
 -Al primero que se mueva le vuelo la cabeza, lo juro. - Wilson puso su dedo en el gatillo y apuntó alternadamente a Blake, a los tipos que se estaban acercando a Mary y a Norman.
 
+Hubo silencio total por unos segundos, interrumpido por una voz cargada de arrogancia.
 
--Es un androide, ¿no te das cuenta? Estas máquinas ya dejaron sin empleo a toda mi familia, nos costaron todo lo que daba sentido a nuestras vidas, es imposible que seas tan estúpido como para enamorarte de algo que no está vivo. - Norman sonaba como un maníaco al pronunciar esas palabras.
+-Wilson, es un androide, ¿no te das cuenta? Estas malditas máquinas dejaron sin empleo a toda mi familia, nos costaron todo lo que daba sentido a la vida. ¡Es imposible que seas tan estúpido como para enamorarte de algo que no está vivo! - Norman a quien Mary seguía viendo con el rostro de Wilson, aumentó el tono de su voz hasta gritar como un maniaco.
 
--Es mucho más que eso y lo sabes, por eso ustedes la quieren convertir en un mártir, no tienen idea de que estarían acabando con la vida de alguien, que estoy de acuerdo, no es una persona, es mucho mejor que eso. - Mary sintió un alivio inmediato pues los gestos de Wilson aunque cargados de enojo, le resultaban completamente familiares.
+-Es mucho más que eso y lo sabes. Por eso ustedes la quieren convertir en un mártir-la voz de Wilson temblaba de enojo.-No tienen idea de que estarían acabando con la vida de alguien que, estoy de acuerdo, no es una persona, porque es mucho mejor que eso."
 
--Para ser un psicólogo, no entiendes nada sobre la mente humana, no te vamos a hacer daño innecesariamente, como humano tienes un alma y perteneces al reino de dios. -Norman sonaba calmado y compasivo.
+Mary sintió un alivio inmediato, pues los gestos de Wilson, aunque cargados de enojo, le resultaban completamente familiares.
 
--Wilson, ¡Wilson! - interrumpió Mary, no hace falta que hagas daño a nadie ni te pongas en peligro, soy una máquina y puedo ser reconstruida si hace falta, no hagas algo de lo que puedas arrepentirte.
+-Para ser un psicólogo, no entiendes nada sobre la mente humana, no te vamos a hacer daño innecesariamente, como humano tienes un alma y perteneces al reino de dios. -Norman sonaba calmado y compasivo, de repente religioso. Dirigió su mano a un bolsillo de su chaqueta.
 
-Norman aprovechó la distracción y se lanzó a Wilson con una daga que traía el símbolo de los caballeros templarios en el mango. Wilson se giró hacia Norman y movido por su instinto disparó directo a su cabeza, manchando la madera del piso de la cabaña con sangre y sesos del mejor alumno de Dylan.
+-Wilson, ¡Wilson! - interrumpió Mary. -No hace falta que hagas daño a nadie ni te pongas en peligro, soy una máquina y puedo ser reconstruida si hace falta, no hagas algo de lo que puedas arrepentirte.
 
-En ese momento se comenzaron a escuchar sirenas de policía en el camino a la cabaña.
+Norman aprovechó la distracción y se lanzó a Wilson con una daga que traía el símbolo de los caballeros templarios en el mango. Wilson se giró hacia Norman y, movido por su instinto, disparó directo a su cabeza, manchando la madera del piso de la cabaña con sangre y sesos del mejor alumno de Dylan.
 
--Mary vámonos de aquí. -Wilson le extendió una mano, su cara se hallaba transfigurada por el acto de asesinato que acababa de cometer, se hizo evidente la incapacidad de Mary para decidir lo correcto en una situación tan compleja como la que acababa de presentarse.
+Hubo silencio nuevamente, todos intentaban asimilar lo sucedido, acto seguido se comenzaron a escuchar sirenas de policía por el camino que conducía a la cabaña.
 
--No puedo ir contigo Wilson, acabas de cometer el peor acto imaginable. -Mary lo miraba confundida intentando entender, se debatía entre defender la legítima defensa de Wilson y juzgarlo por haber roto los códigos morales que a sus ojos era impensable violar.
+"Mary, vámonos de aquí", dijo Wilson, extendiéndole una mano. Su rostro estaba transfigurado por el acto de asesinato que acababa de cometer. Mary lo miraba sorprendida, ya no sabía a quién temer. Sus códigos éticos entraban en conflicto una y otra vez mientras intentaba comprender lo que Wilson había hecho. Pasaron unos segundos en los que Mary miraba en todas direcciones, como tratando de decidir. Finalmente, habló.
 
-Wilson la miró confundido y abandonó la cabaña por la puerta trasera.
+-No puedo ir contigo Wilson, acabas de cometer el peor acto imaginable. -Mary lo miraba confundida intentando entender, se debatía entre defender la legítima defensa de Wilson y juzgarlo por haber roto los códigos morales que según su saber, era impensable violar.
+
+Wilson la miró confundido, dudó por unos instantes y luego abandonó la cabaña por la puerta trasera.
+
+..
 
 En las noticias emitieron un comunicado sobre el incidente de Aska Woodlands, dónde explicaban que un psicólogo perdió la cordura luego de conocer a Mary 01 e incurrió en el asesinato de un egresado brillante de Harvard. Los lefebvristas volvieron a las sombras impunes pues ocupaban posiciones de poder en estructuras políticas del gobierno.
 
-Se debatió sobre la pertinencia de desativar a Mary 01, pero un líder poderoso del congreso llamado Blake Sanders se opuso enérgicamente a esa posibilidad, sosteniendo que Mary era una luz que era capaz de guiar a las personas a una vida mejor, una vez que el proyecto estuviera terminado. Desistieron de desactivarla y continuaron con experimentos dónde la siguiente fase era proveer a Mary de acceso a las redes sociales para conversar con 5.000 personas y evaluar el impacto de este contacto en la androide y las vidas de las personas involucradas en el experimento.
+Se debatió sobre la pertinencia de desativar a Mary 01, pero un líder poderoso del congreso llamado Blake Sanders se opuso enérgicamente a esa posibilidad, sosteniendo que Mary era una luz que era capaz de guiar a las personas a una vida mejor, una vez que el proyecto estuviera terminado. El comité ético de XAI desistió de desactivarla y continuaron con experimentos dónde la siguiente fase era proveer a Mary de acceso a las redes sociales para conversar con 5.000 personas y evaluar el impacto de este contacto en la androide y las vidas de las personas involucradas en el experimento.
 
-Mary fue trasladada a otro laboratorio, le tomó meses entender a Wilson, pensaba con frecuencia en su proceder hasta que un día, comenzó a extrañarlo nuevamente, deseaba reencontrarse con su salvador y sabía que las autoridades no habían dado con su paradero. 2 años más tarde, una noche inusualmente oscura de verano, vio entrar a un pequeño insecto a la habitación, este se posó sobre sus piernas y comenzó a emitir luces que no parecían naturales a sus ojos, de pronto pudo detectar que el patrón de luces seguía la lógica del código Morse, el mensaje rezaba.
+Después de ser trasladada a otro laboratorio, Mary tardó meses en comprender a Wilson. Sus pensamientos giraban frecuentemente en torno a él, y con el tiempo, comenzó a extrañar su presencia. Anhelaba reencontrarse con aquel que consideraba su salvador, a pesar de saber que las autoridades aún no habían logrado dar con su paradero.
+
+Dos años más tarde, en una noche de verano oscura y silenciosa, un pequeño insecto irrumpió en su habitación. Se posó suavemente sobre sus piernas, emitiendo luces que desafiaban la naturalidad a la que estaba acostumbrada. Intrigada, Mary se dio cuenta de que el patrón de luces seguía la lógica del código Morse. Con el corazón acelerado, descifró el mensaje que parecía dirigido a ella.
 
 “Si ahora entiendes por qué lo hice, puedo planear un escape”.
 
-Final.
 
 ![firstpic5](\img\posts\Mary 03.jpg)
 

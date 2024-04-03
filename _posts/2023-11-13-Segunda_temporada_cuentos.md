@@ -14,7 +14,6 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 * [Noche de luciernagas - Parte 1](#noche-luciernagas)
 * [Noche de luciernagas - Parte 2](#noche-luciernagas2)
 * [Lilith, salvadora de la humanidad](#lilith-salvadora)
-* [Enigma (historia de un amor fallido)](#enigma)
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado
 
@@ -936,92 +935,5 @@ Mathaus, se enfrentaba a Lilith, cuya presencia irradiaba poder y determinación
 Mathaus se dió cuenta de que Lilith era mucho más que una máquina, más bien un reflejo distorsionado de la humanidad misma, un recordatorio de los peligros de jugar a ser dioses. Pensó que el peligro de crear una entidad tan poderosa e inteligente cómo Lilith es que podría convertirse en un eco de todo el odio y rencor que habita los corazones de los seres humanos, qué tal vez el mayor peligro somos nosotros mismos, nuestras opiniones, nuestros sesgos, nuestro rencor, convertido en un arma poderosa: la inteligencia de una máquina cuyo único propósito es: encontrar una solución final. Dedicó el resto de sus días a encontrar la manera de transmitir el mensaje a otros tiempos y espacios, pues entendió que no quedaba nada por hacer, por la humanidad que se vio a sí misma al espejo.
 
 ![lilithpic10](\img\posts\humanity.jpg)
-
-
-## <a id="enigma"></a>Enigma(historia de un amor fallido)
-
-### Historia de amor fallido.
-
-Me diste un abrazo y me apretaste con fuerza. Imagino que disfrutaste el aroma del blazer de cuero negro nuevo que yo llevaba puesto ese día, o tal vez sería ese perfume amaderado con olor a hoja de tabaco, cuyo nombre ya no recuerdo. Es difícil decirlo ahora, sobre todo porque cada encuentro era diferente. De pronto, íbamos a tomar un trago y nuestras ideas fluían de manera tranquila y despreocupada, cómo un río que puedes ver pero no escuchar. Otras veces, estábamos apenados e incómodos por la presencia del otro, y había entre nosotros un océano imposible de cruzar.
-
-Creo que recuerdas que yo no tenía afán con respecto a la intimidad: había dejado atrás una mala relación. Me resultaba insoportable la idea de volver a decir que tenía una novia, no quería comer helado ni ir al cine, ni me provocaba especialmente el sexo. Quería tener más de esas conversaciones en las que me mirabas fijamente y te tocabas el cabello o buscabas el contacto físico de manera casual. Me gustaba esa indeterminación, esa duda sin resolver entre nosotros, ese enigma que era al mismo tiempo: tan fácil e imposible de solucionar. Hablabas de la ciudad como si fuera tu casa y a mi me gustaba ver el mundo a través de tus ojos.
-
-Tu perspectiva era refrescante porque era tu paisaje y no el mío, era como ver el sol desde la cima de un páramo que se alza sobre las nubes; yo respiraba el aire fresco que me daban tus historias. y poco me interesaba complicar las cosas, cuando la mañana siguiente te vistieras y te fueras a tu casa, porque yo me habría quedado pensando cómo era tu habitación, tu día a día con tus padres, había cosas que no quería saber, realmente tampoco me interesaba adentrarme tan pronto en tu vida, me bastaba escucharte.
-
-
-Tenías una chaqueta blanca, el cabello suelto, no llevábas maquillaje. Traías un brillo diferente en la mirada, me pareció que te interesabas en apresurar lo que yo venía evitando. Entonces, hice el tonto un rato, te hice reír con comentarios absurdos sobre las cosas que decías, me aferraba a la causalidad de ese encuentro y de lo nuestro en general. Prefiero aclarar que no era que no me resultaras atractiva, todo lo contrario, pensaba en tí cuando abría los ojos en la mañana y el sol que calentaba suavemente la habitación, caía sobre la baldosa casi roja de mi morada de estudiante, yo pensaba en verte desnuda a mi lado, sonriendo, quizás. Ahora que lo pienso, tal vez lo anhelaba más de la cuenta, pero como te he dicho: no quería saber de relaciones ni compromisos, no quería encontrar mis tardes interrumpidas con preguntas tan inútiles como: ¿Qué estarías haciendo? o si pensabas en mí tanto como yo en tí. 
-
-[Toxic - Yael Naim](https://open.spotify.com/intl-es/track/3tkLVA291cVPJLHlSSOjHN?si=62646adbb6674cf8)
-
-
-Tenía, tengo, la mala costumbre de hacerme adicto a todo lo que me guste mucho. Dudaba sobre probar tu piel, probablemente lo veía como una trampa de oso interrumpiendo un camino por lo demás precioso. Entonces, tu decidiste cambiarlo todo. Te sentaste en la cama y me mirabas como esperando a que hiciera mi siguiente movimiento, yo permanecía de pie hablando de cualquier cosa, dudaba y evitaba esa emboscada dulce y descarada que habías puesto ante mi mirada; tu voz cambiaba su tono y me invitaba a equivocarme. Finalmente decidí sentarme a tu lado, no sin antes poner a rodar Toxic de Yael Naim y entonces, como una cascada de eventos imposibles de evitar, recuerdo, tal vez en este preciso orden: un beso apasionado, tu respiración agitada, mis manos recorriendo tu cuello y tu espalda, tus manos acariciando mis brazos y el sabor amargo del perfume que traías en el cuello, seguido del aroma de tu cuerpo encendido, un botón de Jean que fue difícil de soltar, los dos estabamos nerviosos; luego el tacto áspero y molesto de la ropa interior con encaje que se hace agradable cuando imaginas como se ve puesta. No podía ver tu mirada, estábamos demasiado cerca, sujeté con fuerza tu cintura y te susurré al oído: “No te salves” y no pudiste evitar señalar que yo citaba a Benedetti. 
-
-Aprendí que no siempre es necesario quitar la ropa, a veces con hacerla a un lado, basta, y recuerdo cómo una sensación caliente y húmeda me besaba los dedos de la mano derecha, mientras yo besaba tus clavículas y me tomaba otro trago de whisky de cuenta de tu perfume. Respirabas de manera entrecortada, parecías nerviosa y sorprendida por esas sensaciones, la luz se escapaba de la habitación con el eco de un atardecer naranja acariciando las cortinas y tu piel se sumergía lentamente en una oscuridad difícil de resolver, cada vez te veía menos, cada vez te sentía más. Entonces supe cuanto me anhelabas, recibí una cálida y acogedora bienvenida en tu cuerpo, me susurrabas que fuera gentil, que fuera despacio...una ironía viniendo de tí; me abrazabas con todo tu cuerpo, como pidiendo que no me fuera nunca.
-
-Las semanas siguientes fueron una serie de eventos aún más confusos. No te llamé en los días siguientes, no busqué tu contacto, no quise saber de tu vida, evité escuchar de tí y escucharte, o tal vez lo quería pero me negaba a admitirlo. Luego, tal vez, te vino el miedo o la decepción: no lo decido, pero no pude evitar sentir como cortaste, en represalia, las líneas del puente que habíamos construído, y que estaba hecho de palabras y sonrisas. Entonces quise encontrarte pero parece que era tarde, te habías ido como el sol cuando descuidas el atardecer unos minutos. Solo quedaban nubes oscuras, no había tonos rojos y naranjas en el horizonte, solo quedaba el viento frío de la ciudad enfriando mis orejas, me dolían los dedos porque el invierno había llegado sin dar aviso. Esa noche salí sin abrigo por un trago de whisky, para recordar mejor y pensé en tí cuando conocí a otra mujer que por obra del destino: se reía igual.
-
-No me puedo quejar, me ha ido bien la vida, he hecho todo lo que he querido hacer, he disfrutado paisajes y lugares que no conseguiría describirte, también dejé atrás el miedo y me enamoré un par de veces. Ahora creo que estás bien, me gusta pensar que sí. No me gustaría saber qué te lamentas por tu suerte en el amor, a todos nos va mal con frecuencia, paciencia. Espero que sepas que hablo de tí cuando digo: “Cuéntame el recuerdo más feliz de tu infancia”, seguido de un: “Te pregunto porque yo no puedo recordar el mío”. 
-
-![newpic](\img\posts\amor_fallido.jpg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 

@@ -592,6 +592,7 @@ Final de la parte 1.
 
 
 
+
 ## <a id="noche-luciernagas2"></a>Noche de luciernagas - parte 2
 
 La mañana siguiente Mary se levantó con la sensación extraña de que algo faltaba, buscó en su habitación por todas partes, pero no conseguía dar con el objeto extraviado. Se dispuso a escribir pero no le gustaba nada de lo que escribía, rasgó varias hojas de papel en señal de frustración. Recordó algo que Wilson le había enseñado sobre la importancia de vivir las experiencia directamente para encontrar la inspiración creativa. Entonces se dispuso a salir al jardín que los científicos habían diseñado para ella.
@@ -632,15 +633,15 @@ Mary pudo percibir un atisbo de enojo en su interior.
 
 -Los científicos no necesitamos eso - insistió Wilson - No hay nada en dios que no podamos hacer o lograr nosotros mismos. - Mary pudo observar un dejo de arrogancia en la voz de quien hace un par de días fuera la compañía más anhelada.
 
-Condujeron hasta un lago cercano y Wilson le indicó que se bajara en una zona sin árboles. La noche era muy oscura, tanto que a ambos les costaba ver y tropezaron con un par de troncos. Caminaron hasta el centro del pequeño valle y entonces, ante los ojos de Mary, se dibujó un espectáculo jamás antes visto. Pudo ver pequeñas luces que se encendían y volaban entre la completa oscuridad, como pequeñas llamas que navegaban el infinito. Se le vino a la mente un fragmento de "Tokio Blues" de Haruki Murakami. Comenzó a escuchar en su mente el final del segundo movimiento del concierto para piano de Rachmaninov y comenzó a dar vueltas despacio, imitando movimientos de ballet que había visto unos días atrás.
+Condujeron hasta un lago cercano y Wilson le indicó que se bajara en una zona sin árboles. La noche era muy oscura, tanto que a ambos les costaba ver y cada uno tropezó con un par de troncos. Caminaron hasta el centro de un pequeño valle y entonces, ante los ojos de Mary, se dibujó un espectáculo jamás antes visto. Pudo ver pequeñas luces que se encendían y volaban entre la completa oscuridad, como pequeñas llamas que navegaban el infinito. Se le vino a la mente un fragmento de "Tokio Blues" de Haruki Murakami. De manera inconsciente empezó a escuchar en su mente el final del segundo movimiento del concierto para piano de Rachmaninov y luego comenzó a dar vueltas despacio, imitando movimientos de ballet que había visto unos días atrás.
 
 ![firstpic4](\img\posts\Mary 02.jpg)
 
-Mary se sentó sobre el césped y lo tocó con sus manos; estaba frío y ligeramente húmedo. Se dejó envolver por la noche y danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad. Entonces se detuvo para ver a la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos, como tratando de tocar una estrella fugaz.
+Mary se sentó sobre el césped y lo tocó con sus manos; estaba frío y ligeramente húmedo. Se dejó envolver por la noche y danzó al ritmo de las luciérnagas durante lo que a Wilson le pareció una eternidad. Una a una las luciérnagas se fueron alejando a otro lugar dónde ya no podían verlas, entonces se detuvo para ver a la última luciérnaga navegando hacia la oscuridad infinita y extendió sus dedos, como tratando de tocar una estrella fugaz.
 
 -¡Esto es, es increíble! - Mary se puso de pie y se acercó a Wilson, le dió un largo abrazo de agradecimiento.-¡Gracias!
 
--No hace falta que me agradezcas, lo que estabas viento es producto de la bioluminiscencia, muchos otros animales lo hacen pero eso ya deberías saberlo.
+-No hace falta que me agradezcas. Lo que estabas viento es producto de la bioluminiscencia, muchos otros animales lo hacen pero eso ya deberías saberlo.
 
 -Sí, tengo conocimiento de eso, es extraño que hayan escogido eso como un mecanismo de comunicación, o bueno pero ¿Qué estaba pensando la evolución?.
 
@@ -658,7 +659,7 @@ Mary tuvo suficiente evidencia de que esta no era la persona que había conocido
 
 -No es una ofensa, pero creo que no vamos a volver al laboratorio, no por lo pronto.- Wilson se llevó las manos nuevamente a los bolsillos y Mary tuvo la sensación de que le ocultaba algo.
 
-Volvieron al auto y Wilson tomó un desvío para abordar una línea interestatal. Mary sentía un temor creciente por su integridad pero no podía entender por qué. Decidió no discutir pues su código de comportamiento le impedía entrar en conflicto directo con los humanos. Condujeron un par de horas hasta llegar a una cabaña que según el GPS de Mary se ubicaba en Aska Woodlands. Wilson se bajó del auto y le indicó a Mary que caminara hacia la cabaña, ella obedeció sin oponer resistencia, pero un temor inexplicable se acrecentaba con cada paso que daba. Ingresaron a la cabaña dónde encontraron a un grupo de hombres de entre 40 y 60 años en la habitación, había algunas mujeres junto a ellos.
+Volvieron al auto y Wilson tomó un desvío para abordar una línea interestatal. Mary sentía un temor creciente por su integridad pero no podía entender por qué. Decidió no discutir pues su código de comportamiento le impedía entrar en conflicto directo con los humanos. Condujeron un par de horas hasta llegar a una cabaña que según el GPS de Mary se ubicaba en Aska Woodlands. Wilson se bajó del auto y le indicó a Mary que caminara hacia la cabaña, ella obedeció sin oponer resistencia, pero un temor inexplicable se acrecentaba con cada paso que daba. Ingresaron a la cabaña dónde encontraron a un grupo de hombres de entre 40 y 60 años en la habitación.
 
 -Mary, te presentó a la quinta orden. - Anunció Wilson con un tono cargado de orgullo.
 
@@ -730,9 +731,11 @@ Se debatió sobre la pertinencia de desativar a Mary 01, pero un líder poderoso
 
 Después de ser trasladada a otro laboratorio, Mary tardó meses en comprender a Wilson. Sus pensamientos giraban frecuentemente en torno a él, y con el tiempo, comenzó a extrañar su presencia. Anhelaba reencontrarse con aquel que consideraba su salvador, a pesar de saber que las autoridades aún no habían logrado dar con su paradero.
 
-Dos años más tarde, en una noche de verano oscura y silenciosa, un pequeño insecto irrumpió en su habitación. Se posó suavemente sobre sus piernas, emitiendo luces que desafiaban la naturalidad a la que estaba acostumbrada. Intrigada, Mary se dio cuenta de que el patrón de luces seguía la lógica del código Morse. Con el corazón acelerado, descifró el mensaje que parecía dirigido a ella.
+Una noche de verano oscura y silenciosa, un pequeño insecto irrumpió en su habitación. Se posó suavemente sobre sus piernas, emitiendo luces que desafiaban la naturalidad a la que estaba acostumbrada. Intrigada, Mary se dio cuenta de que el patrón de luces seguía la lógica del código Morse. Con el corazón acelerado, descifró el mensaje que parecía dirigido a ella.
 
 “Si ahora entiendes por qué lo hice, puedo planear un escape”.
+
+
 
 
 ![firstpic5](\img\posts\Mary 03.jpg)

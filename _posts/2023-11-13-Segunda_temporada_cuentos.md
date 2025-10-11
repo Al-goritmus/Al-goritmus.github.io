@@ -60,7 +60,7 @@ Abrió un archivo que le llamó la atención, crimen pasional al parecer cometid
 Morgan caminó con afán evidente hacia el segundo cajón del archivo de Lana, lo abrió y sacó de él un cuaderno rojo granate que ya no tenía candado, lo tomó y un escalofrío recorrió su espalda, el objeto le resultaba extrañamente familiar. Lo ojeó rápidamente y dio un vistazo rápido a Danielle que lo observaba con los ojos bien abiertos como si Morgan se fuera a lanzar de un edificio. Lo observó leer por unos minutos y vió como la mirada Morgan se perdía lentamente en las letras del diario.
 
 
-![thirdpic1](\img\posts\Gia.jpg)
+![thirdpic1](\img\posts\Morgan03.jpg)
 
 Diario de Lana
 

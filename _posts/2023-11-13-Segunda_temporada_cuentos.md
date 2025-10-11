@@ -9,11 +9,208 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 ![firstpic](\img\posts\kthulu_implicit2.jpg)
 
 
+* [El caso de Lana grimes](#Lana-grimes)
 * [Franco, el último iluminado](#franco-iluminado)
 * [Paradoja inmortal](#paradoja-inmortal)
 * [Noche de luciernagas - Parte 1](#noche-luciernagas)
 * [Noche de luciernagas - Parte 2](#noche-luciernagas2)
 * [Lilith, salvadora de la humanidad](#lilith-salvadora)
+
+
+
+## <a id="Lana-grimes"></a>El caso de Lana Grimes
+
+
+### Nueva York 2050.
+
+![firstpic1](\img\posts\nuevayork2025.png)
+
+-Detective Morgan, queda asignado a labores de oficina hasta nuevo aviso, parece, según lo que dicen sobre usted, que tiene problemas con el control de sus emociones. ¿Qué diablos le pasa, Morgan? ¡Nos tiene la prensa encima y usted sale a golpear a un sospechoso en plena calle!. - El Capitán Martinez miraba con enojo a Morgan mientras se acomodaba la guerrera y la gorra. 
+
+-Capitán, estoy seguro que es el asesino que buscamos, el patrón se repite y las pistas son claras en decir qué…
+
+-¿En decir qué!? Si no tenemos pruebas suficientes para que la fiscalía lleve al asesino de la luna o como usted le llame, a la cárcel. No podemos darnos el lujo de andar deteniendo a cualquiera por corazonadas suyas. Diríjase de inmediato al piso de archivo, ahí tenemos muchos casos sin resolver que podrían beneficiarse de su clarividencia- Ironizó el capitán antes de girarse y abandonar la habitación dando un portazo.
+
+El despacho de Morgan era pequeño, había un escritorio de roble con una lámpara rústica de madera hecha con un tronco de madera retorcido y casi sombrío, había algunos libros entre los que destacan las novelas policiacas de Sherlock Holmes y Aguste Dupin, así como el psicópata integrado de Vicente Garrido y a sangre fría de Truman Capote. Junto a los libros reposaba una pipa de tabaco Salvatore Amorelli, llena de hollín, el lugar olía a tabaco y a café, y daba la impresión de pertenecer a alguien que nunca dormía y que además leía mucho.
+
+![secondpic1](\img\posts\Escritorio Morgan.jpg)
+
+Morgan salió a la calle y se estrelló con el viento frío de octubre. Dio una mirada al cielo para ver un montón de personas desplazándose en pequeñas plataformas que se movían de un edificio a otro generando un zumbido que le recordaba a las pistolas láser en los videojuegos que jugó siendo un niño, en la calle varios autos automáticos llevaban personas dormidas a sus destinos, había luces neón por todas partes, una cantidad de luz que a Morgan se le antojaba innecesaria e irritante. Aún no se acostumbraba a ese paisaje futurista de la Nueva York de mediados de siglo 21. Compró una cajetilla de cigarrillos, a la antigua, se fumó medio y regresó al interior de la comisaría. 
+
+![thirdpic1](\img\posts\Morgan02.jpg)
+
+La sala de archivo era un espacio lúgubre, paredes color verde menta raídas y abandonadas, el aire acondicionado mantenía la habitación a una temperatura baja y se podía ver ocasionalmente algún funcionario pasar con un archivo físico. Se acercó a una pantalla transparente de 2 metros y dijo al asistente virtual de la comisaría: “Busca archivos no resueltos de asesinatos de mujeres ocurridos entre 2030 y 2035. Casos únicos, no sospechosos seriales”.  -”Tal vez un caso único sea lo que me haga falta resolver, debo tomarme unas vacaciones con los seriales, me están volviendo loco”.
+
+Abrió un archivo que le llamó la atención, crimen pasional al parecer cometido por un hombre contra una mujer joven en un penthouse de la avenida sexta de Manhattan. El ADN del sospechoso hallado en la escena, pero resultó ser de alguien registrado como muerto años antes del asesinato, se ponía más extraño: el forense no logró determinar la causa exacta de la muerte; el cuerpo parecía “congelado en el tiempo”. -”¿Cómo pudo escapar este tipo?”.-Se rascó el cabello y dio un trago al energizante que por esa fecha ya traía sustancias que inducían la concentración extrema. El archivo rezaba: “Mujer de 28 años, vestido blanco, homicidio sin signos de overkill, manipulación del cuello, sospecha crimen pasional”. 
+
+-¡Hola! –Morgan dio un salto al ser interrumpido de su lectura.
+
+-Danielle, cuánto tiempo sin verte, cómo estás? –Inquirió Morgan con su estilo parco y poco elaborado.
+
+-¿Qué lees? –Danielle, una mujer delgada, pálida, de rasgos delicados y cabello negro se acercó a Morgan para ver el archivo que tenía en la mano.–¿No te aterra leer ese archivo?
+
+-¿y por qué debería aterrarme leer esto?–Replicó Morgan de mala gana mientras se sacudía restos de tabaco del blazer.
+
+-¿No lo sabes? Cada investigador que revisó el caso reportó pesadillas recurrentes y uno terminó suicidándose.
+
+-¿De qué estás hablando, Danielle?, no creerás que este es un caso embrujado o alguna cosa así, ¿Qué estás insinuando?.
+
+-Nada -Danielle parecía avergonzada y miraba hacia el suelo en diagonal, con una mezcla de temor y vergüenza en el rostro - En el segundo cajón del archivo, vas a encontrar el diario de Lana Grimes.
+
+Morgan caminó con afán evidente hacia el segundo cajón del archivo de Lana, lo abrió y sacó de él un cuaderno rojo granate que ya no tenía candado, lo tomó y un escalofrío recorrió su espalda, el objeto le resultaba extrañamente familiar. Lo ojeó rápidamente y dio un vistazo rápido a Danielle que lo observaba con los ojos bien abiertos como si Morgan se fuera a lanzar de un edificio. Lo observó leer por unos minutos y vió como la mirada Morgan se perdía lentamente en las letras del diario.
+
+
+![thirdpic1](\img\posts\Gia.jpg)
+
+Diario de Lana
+
+20 de enero 2035
+
+“El rooftop Jimmy de la MordernHause en Midtown Manhattan estaba bañado por el resplandor anaranjado de un atardecer que se reflejaba en los edificios. Había una hermosa piscina de agua fotocromática que vibraba con el ocaso, replicando los tonos del cielo en un degradado líquido. Un grupo de jóvenes jugaba a emborracharse con desafíos extraños; sus risas apenas competían con el silbido lejano de los aerotaxis entre los cañones de la ciudad.
+
+Ese día llevaba un vestido rojo de flores y un lápiz labial que hacía juego perfecto. Pasé en la mañana por el salón para rizar mi cabello, mi corte bob favorito (rubio plateado), al mejor estilo de Marilyn Monroe. Me vi al espejo y disfruté mi silueta delgada. Frente al espejo, ajusté la máscara de dulzura inocente que tan bien me sentaba. Un último retoque a la ficción antes de salir. Estaba aburrida porque no había nadie interesante (para variar), cuando ví a un hombre joven, con una presencia imponente. Llevaba un blazer azul marino, una camisa blanca Saint Laurent y un pantalón tono arena con zapatos azul oscuro, no pude ver los ojos al principio porque tenía unas gafas de sol que hacían un juego perfecto con el corte de cabello pompadour castaño. Lo miré disimuladamente. Le escuché desgranar nombres de yates y calas en la Costa Azul, y luego el recuento frío, casi quirúrgico, de cómo una chica —cuyo nombre dijo olvidar— se había obsesionado. Comenzó a mirar hacia dónde yo estaba sóla, bueno, con mi Martini. Y cuando menos pensé, el tipo decidió dejar a sus amigos y caminó directo hacia mí. Su mirada tenía una calma inusual, una fijeza que parecía... programada. No era tierna ni peligrosa, sino ambas cosas y ninguna a la vez. Una disonancia. Y esa extraña sensación fue lo que me sacudió por dentro. Cuando me saludó, juraría que vi el último rayo del sol desaparecer.
+
+Me dijo que se llamaba Dominick, yo sonreí, traía un perfume que olía como al aroma más exclusivo y elegante que pudieras conseguir en Dubai, era embriagante. Me presenté y creo que le dí una mirada coqueta, le pregunté si frecuentaba la terraza y me dijo que era la primera vez que venía a ese lugar. Creo que es un gran conversador porque cuando menos pensé le estaba contando sobre mi familia, mi mala relación con mi padre, mi amor devoto por mi madre. Hacía preguntas diferentes, era como si señalara algo en lugar de preguntar. Lanzaba cosas como: “eres obsesiva, te gusta cuidar” y no se cuantas más cosas que me hacían hablar más y más de mí. Creo que realmente no llegué a conocerlo ese día.”
+
+25 de enero de 2035.
+
+“¡Volví!
+
+¿Dónde iba? Aclaro que escribo todo esto porque me lo pidió mi terapeuta, pero tal vez me gusta esto de escribir mi historia, es cómo si fuera una escritora famosa, sigamos. Dominick escuchó todo lo que dije sobre mi padre sin interrumpir. Cuando terminé, el silencio se sintió denso, pesado. Luego habló, y fue como si tuviera un guión para cada herida, precisión quirúrgica otra vez, me sorprende que no sea psiquiatra o cirujano.
+Me dijo que lamentaba lo de mi padre, pero que nunca era tarde. Recuerdo que dijo: “Me gustaría ser tu mentor”, lo dijo de repente. No pude disimular la sorpresa, nadie me había dicho algo así. “No lo tomes mal… solo en algunas cosas”. Lo extraño es que su voz era compasiva, pero la oferta se sentía más bien como posesiva. Dijo que Carl —le hablé de Carl— no merecía una hija como yo, pero que quizás yo podría incluso llegar a ayudarlo algún día. Y para eso, primero tenía que arreglarme a mí misma. Me dijo que estaría complacido de poder ayudar, recuerdo que sonó como un médico ofreciendo una cura milagrosa.
+
+Y yo me lo bebí todo. Cada palabra. Le dije que era lo que siempre quise escuchar de mi padre. El sol del atardecer le arrancaba reflejos de vino tinto a mis ojos, o al menos eso dijo él, y yo solté una risa nerviosa, infantil, no sé reír de otra manera, en mi defensa.
+
+“Es extraño que uses su nombre para referirte a él”, me interrumpió, sonriendo de medio lado. “Es como si pensaras que la vacante está disponible”. La verdad es que la frase me heló por un segundo. Nadie me había hablado así, con esa mezcla de análisis y coqueteo. Se puso de pie y señaló el camino. Era hora de bajar a un espacio privado.
+
+Mi apartamento se sintió diminuto y caótico bajo su mirada. Me preguntó: “¿Tus padres saben que tu apartamento es un desastre?”. Pero no se sentía cómo una pregunta real, era un juicio. Sentí su mirada recorriendo el desorden y de pronto me sentí como una niña a punto de ser regañada. Le respondí que no necesitaba que nadie me cuidara, que podía estar sola…Recuerdo que la voz me salió más débil de lo que quería. Un escalofrío me recorrió la espalda, el mismo que sentía de niña cuando sabía que había hecho algo malo.
+
+Él se sentó en mi cama, tan dueño del espacio. Me hizo un gesto para que me sentara en su regazo. Y lo hice. No sé por qué, fue como un impulso, un resorte que él activó dentro de mí.
+Comenzó a acariciarme el cabello. Su voz se volvió simple, casi un arrullo, hablándome con palabras que se usan para calmar a un niño asustado. Y en lugar de sentirme insultada, me sentí… tranquila. Su aura, que en el rooftop se sentía como una agresividad contenida, aquí abajo se había transformado en algo dulce, protector. Una fortaleza.
+
+No recuerdo mucho más de las siguientes horas. Solo el peso de su brazo sobre mí en la oscuridad, que se sentía como un ancla. O quizás como una jaula. La noche nos había dejado a oscuras, solo con el parpadeo azul del purificador de aire en la esquina”
+
+Morgan levantó la mirada del diario y se dió cuenta que veía borroso, no pudo evitar conmoverse por la historia, lo incauta y frágil que sonaba Lana, y la manera en la Dominick, si así se llamaba, se había acercado a ella, era cómo ver un depredador en acción, algo que ella intuía pero parecía no reconocer o no considerar un problema. Decidió salir un rato de la comisaría y fue directo a ModernHaus. Se encontró con el mismo atardecer rojo que Lana había plasmado en su diario, el viento era cálido y había un olor a pino en el aire, típico del abeto noruego. Se pidió un trago y se sentó en un punto del lugar, dónde vio a una pareja que parecía recién conocerse y le dio la impresión de ver a Lana y a Dominick recreando la escena para él. Trató de imaginar a un experto en seducción, que sabía tocar cada fibra del alma de Lana y usarla a su antojo, qué clase de tipo era y a qué se dedicaba, si sólo era un gran seductor o tenía un lado mucho más oscuro.-”Este Dominick, podría ser el asesino”-Pensó y luego de un par de tragos más de whiskey decidió volver al archivo, quería saber más.
+
+
+![fourthpic1](\img\posts\rooftop1.jpg)
+
+Diario de Lana
+
+15 de mayo
+
+“Los últimos meses han sido un desenfoque, una rutina extraña. Días de sexo devorador seguidos de sus "lecciones". Me leía en voz alta, literatura francesa tan dañada y retorcida que me hacía sentir sucia y fascinada a la vez. El Marqués de Sade, por supuesto. Yo, tumbada en la cama, escuchándolo como a un profesor. Su proyecto era “corregirme”, enseñarme a comportarme, castigando con silencio o con un toque demasiado duro cualquier atisbo de placer que los textos provocaran en mí. Una clase retorcida sobre mi propia inmoralidad, algo que realmente me ponía a mil revoluciones.
+Con el paso de las semanas siguientes el calor se fue apagando, muy lentamente, apenas lo percibí. Las lecciones se hicieron más escasas, a veces llegaba pero parecía no estar presente, sus visitas se espaciaron y sus mensajes se hicieron cada vez más, cosa del día siguiente. Se convirtió en un fantasma en mi propio apartamento, una presencia indiferente. Y yo, como una idiota, empecé a esforzarme el doble. Comencé a necesitar esa intensidad, esa mirada que me desarmaba. Es una adicción, lo sé. Una en la que juré nunca caer. Cada día que pasa, el silencio se hace más grande, y el miedo a que no vuelva es un nudo en el estómago”.
+
+25 de Agosto
+
+Hacía una noche linda y compartíamos buen vino, pero hoy decidí que no más. No más silencio, no más suplicar con la mirada. Estaba aquí, dando vueltas a un maldito bolígrafo entre sus dedos perfectos, y lo confronté. Intenté que la voz no me temblara al preguntarle por su distancia.
+
+Me devolvió la pregunta, frío como siempre: “¿Tienes una teoría sobre mi comportamiento?”.
+
+Y ahí, en lugar de rogar, algo cambió. Su propio veneno me dio la idea. Ya no era la chica rota que él creía haber domado. Ahora que me sentía invisible para él, sentí que podía transformarme en cualquier cosa. Me encogí de hombros. “No, de hecho creo que te entiendo bastante bien. No tienes nada que explicarme”.
+
+Su sonrisa vaciló. Creo que fue la primera vez que lo vi dudar. “Entonces cuéntame”, dijo, tratando de recuperar el control, “¿crees que estoy dañado y puedes repararme?”.
+
+Fue mi oportunidad. Le dije que él era el irreparable, el que estaba muerto en vida. Le hablé de cómo su necesidad de ser el mejor era solo un eco de unos padres que solo aplaudían sus logros; de cómo se había vuelto un actor en su propia vida, tan vacío que necesitaba romper a otros para sentirse completo. Y entonces usé la palabra que lo desarmó: lástima. “Tengo que confesarte que me das lástima”.
+
+Vi cómo apretaba la mandíbula. Cómo su mano casi rompe la copa de vino. Intentó defenderse con su arrogancia, hablando de las otras mujeres, de que hace lo que quiere porque puede. Pero yo sabía que había tocado el nervio.
+“Tu problema, cariño”, le dije, “es que nadie te enseñó a quererte”.
+
+Se sirvió un vodka y por primera vez sentí miedo genuino. El resto de la noche fui sutilmente cruel. Usé sus propias técnicas contra él, envolviendo insultos en palabras falsamente compasivas. Lo observé contener su enojo, responder a la defensiva, sin saber cómo parar los golpes.
+
+Por primera vez, él no tenía el control. Lo tenía yo.
+
+Y la sensación, ahora que escribo esto en la cama vacía, en lugar de ser liberadora, se siente peligrosamente familiar. Como mirarme en un espejo roto y ver su rostro en mi reflejo.
+
+24 de Octubre
+
+“Mis peores temores se hicieron realidad hoy, pasó algo horrible, no sé cómo salir de esto. Me siento perdida. Dominick perdió el control mientras discutíamos y arrojó una botella de ginebra al vidrio del ventanal principal de su departamento. Luego me tomó del cabello y me asomó por el ventanal, cómo si me fuera arrojar al vacío, era un piso 28, ¡mierda!. Me sostuve como pude de sus antebrazos para no caer. Estaba como loco gritando que la ciudad y el mundo le pertenecían, que todo era de él, que era el maestro de las marionetas y no recuerdo qué más locuras. Lo que más me aterra es que mientras eso sucedía cayeron un par de rayos y juro, juro que ví la mirada de un monstruo frío y asesino. ¿Dónde está el hombre dulce y cuidadoso que conocí? Quisiera que alguien pudiera devolvérmelo, pero sé bien que es imposible. Pero vi claramente cómo se estremecía de placer. Ahora solo tengo miedo, tengo miedo pero tampoco quiero alejarme. ¿Cómo puedo salir de este mal? y sobre todo ¿Cómo puedo volver a ser yo misma?.”
+
+![fifthpic1](\img\posts\LanaDestruction01.jpg)
+
+Morgan tuvo que parar. Era demasiado doloroso ver a través de los ojos de Lana cómo el amor se transformó en su peor pesadilla. Se levantó algo mareado del escritorio y guardó apresuradamente el diario. Salió por un aerotaxi e hizo una parada para comprar algo más de licor; necesitaba dormir de borracho, de otra manera, iba a ser imposible. Llegó a su casa con una botella de Macallan ahumado y encendió la fogata holográfica. Puso un clásico de rock que no recordaba disfrutar: I Put a Spell on You de Screamin’ Jay Hawkins. La dejó sonar mientras encendía su pipa. Tomó una, dos, diez copas. Hasta que cayó dormido y comenzó a soñar.
+Soñó con gritos y con una lluvia fría. Soñó con el olor a cannabis y alcohol, con botellas regadas por todas partes. Soñó que despertaba a Lana, que llevaba puesta una lencería que él mismo le había regalado.
+Soñó que se quitaba el cinturón.
+
+—“¡Ni te atrevas maldito canalla!”— gritó ella. —“¡Yo no soy tu juego, no soy tuya!”.
+
+En el sueño, su mirada se desvió hacia la mesa de noche. Vio dos paquetes de condones destapados y sintió un volcán que hizo una erupción violenta en su pecho, como si algo tomara posesión de su ser. Lo siguiente fue confuso: una lámpara moviéndose de manera tétrica, la fuerza de Lana defendiéndose y luego su mano derecha sobre el cuello de ella y su mano izquierda rompiéndole la ropa. Comenzó a ahorcar fuerte durante minutos que parecieron segundos. Luego, lo peor, un silencio eterno. 
+
+La mirada perdida de Lana, su cuerpo de Lana cada vez más frío. Su rostro, manchado de sangre, con la mirada perdida en la infinita oscuridad.
+
+En su mente sonaban notas de piano disonantes, acordes malditos. “¿Por qué no se callan estos sonidos? ¡No puedo pensar! ¿Cómo voy a callar ahora las voces?”.
+
+Morgan despertó de golpe, bañado en sudor y completamente aterrado. ¿Por qué acababa de soñar con la muerte de Lana, y siendo él mismo Dominick en primera persona?
+
+“Qué mierda significa todo esto”, se preguntó.
+
+Un par de días después, estaban en una reunión para discutir el caso y los avances de Morgan.
+
+
+-¿Qué dices Morgan? Violencia doméstica común, con una narrativa desgarradora, diría yo. - Danielle miraba preocupada a Morgan, sabía que el caso lo estaba afectando. Morgan miraba a una lámpara distraído.
+
+-Honestamente no lo sé, no había muchas cosas rotas en la escena del crimen, según la evidencia no parece haber habido una discusión fuerte entre ellos, pero algo me dice que fue pasional, el relato del diario apunta a un crimen pasional. - Respondió Morgan con su habitual indiferencia, disimulando lo hondo que le había calado cada parte de la historia en la mente, había tenido ya varios sueños absurdamente realistas.
+
+El Capitan Martinez con un tono que aunque calmado, amenazaba con una nueva reprimenda a Morgan respondió.-¿Un crimen pasional con una violación, sin huellas, sin pistas?. Premeditado o no, esto lo hizo un mal hombre y al parecer uno muy inteligente. ¿Pudo analizar y concatenar el archivo del ADN extraño que había en el cuerpo de ¿cómo se llamaba?, Lana Grimes?.
+
+-Si, lo hice, capitán, y el ADN no coincide con ninguna base de datos conocida, de ningún país. Quien sea que la haya matado, es un fantasma, no está registrado en ningún lado, las cámaras de seguridad tienen registros parciales del rostro pero tampoco hay coincidencias, es muy extraño.
+
+-Y su mayor corazonada le dice que es un asesinato pasional y desesperado que mágicamente no deja ninguna pista y al tipo luego se lo llevan los extraterrestres a otra galaxia. Tal vez el error es mío Morgan, confié de más en sus talentos. Tiene dos días más para resolverlo o queda suspendido hasta que sepa que hacer con usted y no le voy a dar vacaciones porque hasta dónde sé vive sólo, usted no tiene familia ni a nadie. - El capitán abandonó la sala de reuniones dejando a Morgan y Danielle en un silencio incómodo y ensordecedor.
+
+Todo esto era extraño porque en 2040 se había ejecutado un protocolo de banco de ADN a nivel mundial con el que existía una copia digital del genoma de todas las personas vivas en el mundo y con este era posible identificar a los hijos de las personas si habían escapado de alguna forma al registro. No existían registros de personas cuyo ADN no pudiera identificarse porque el proyecto virtualmente tenía registrados todos los posibles genomas del mundo, el asesino estaba libre y su ubicación era un misterio para todos en el departamento de homicidios de Nueva York. Quién lo hubiera hecho, tendría que haber modificado su propio ADN para poder desaparecer.
+
+Morgan salió a dar un paseo para despejarse y vio a una chica de vestido de flores rojas y un peinado al mejor estilo de Marilyn Monroe, le recordó de inmediato a Lana. La mujer se sonrió de medio lado y Morgan dio unos pasos más hasta que una sensación desoladora le invadió el pecho y la mente. “¿Por qué siento cómo si yo mismo extrañara a Lana?. Me estoy, ¿me estoy enloqueciendo?”. El pitido de un auto lo interrumpió y tuvo que saltar hacia atrás para evitar ser atropellado. Volvió al archivo para leer la última página del diario. Que seguía pendiente y se encontró con un pequeño poema.
+
+Lobo.
+
+Me hablaste de un reflejo en un cielo de vino tinto. 
+
+Dijiste que mi alma era un cristal que ibas a pulir.
+
+Y aprendí tus lecciones en páginas de seda y espinas. 
+
+Pero me convertí en el eco de una voz que no era mía. Creí que teníamos magia
+
+Pero solo había tragedia por delante.
+
+Quise ser el espejo que te mostrara el monstruo dentro. 
+
+Pero los espejos rotos solo sangran en silencio.
+
+No busques ya mi nombre en el último piso del mundo. Búscalo en el frío, dentro de tu propia memoria. Me voy.
+
+Morgan cerró el diario, pero la voz de Lana no se quedó en las páginas. Fue suspendido por el capitán, al no poder resolver el caso. La voz de Lana, qué se supone no tendría porque recordar, se instaló en el silencio de su apartamento, un eco persistente. Los sueños ya no eran un evento aislado; en ellos veía a Lana, su mirada enamorada, su belleza estremecedora, sentía que debía castigarla por ser tan increíble, tan pura, tan por encima de él, la odiaba porque odiaba amarla, porque no sabía que hacer con lo que sentía. Morgan despertó bañado en sudor, con el sabor a vodka en la boca y la sensación fantasma de un cinturón de cuero en la mano.
+El caso lo estaba devorando desde adentro. Supo que las pistas no estaban en los archivos, estaban en él. Un día, mientras se afeitaba, se sorprendió mirándose al espejo con una sonrisa sádica que no reconoció como suya. Era la sonrisa que Lana había descrito, la de Dominick. El pánico fue un pulso helado en sus venas. Empezó a oír notas de piano disonantes en el zumbido de la ciudad, acordes malditos que nadie más parecía escuchar.
+El caso dejó de ser una investigación para convertirse en una obsesión. Una tarde mientras escuchaba You Lost Me de Christina Aguilera, porque esa música antigua de los 2000 le conmovía, el recuerdo de una caja en su armario, una que nunca abría, lo asaltó. No era una corazonada de detective, era el tirón de un recuerdo enterrado. Fue rápidamente al armario y la abrió con manos temblorosas. Dentro no había respuestas, solo más preguntas: una camisa blanca Saint Laurent, doblada con una pulcritud maniática. Un ejemplar del Marqués de Sade con pasajes brutalmente subrayados y un cinturón.
+
+Necesitaba saber más. La sensación de un contenedor olvidado en las afueras de la ciudad lo arrastró fuera, conduciendo sin rumbo fijo hasta que vio un lugar, que aunque no recordaba, encontró extrañamente familiar. Forzó la cerradura oxidada del contenedor que sintió, escondía los últimos secretos. El contenedor era lúgubre, frío por dentro y olía a tiempo estancado. Y allí, bajo una lona polvorienta, estaban los artefactos del asesino. Su pasado.
+
+Una vieja computadora con evidencias, sí, pero lo que lo rompió no fue un archivo. Fue una caja de fotos. La abrió y el rostro sonriente de Lana lo golpeó como una ola. Fotos de ella en ropa interior, radiante, viva. Y luego, otras. Fotos donde su sonrisa era una tristeza mal disimulada. Al fondo del fajo, había una última imagen. Una selfie de ambos. De Lana y de él, Dominick. En la foto, ella lo miraba con una mezcla de amor y miedo. Y él… él reconoció en sus propios ojos al monstruo frío y asesino que la voz de Lana le había descrito desde las páginas de su diario.
+
+Cayó de rodillas, el aire escapando de sus pulmones en un sollozo ahogado. No era una visión, era un recuerdo y la tristeza lo inundó como si se hubiera roto una presa. La culpa, el asesinato, la arrogancia, el terror… todo se precipitó sobre él. La conciencia de Morgan no reemplazó a la de Dominick; en ese momento se fusionó con ella en un sólo paisaje de horror y desolación. Él era el detective y el asesino. La víctima de sí mismo.
+Morgan no recopiló la evidencia para la policía científica. Sabía que la ley, con su lógica fría, nunca podría entender que en realidad eran la misma persona, lo llamarían loco. El asesino, no pudo con la culpa y decidió transformarse a sí mismo en otra persona, eliminó sus recuerdos y alteró su ADN, técnicamente estaba muerto.
+
+
+Regresó a su apartamento, se sentó en su escritorio y sacó un cuaderno nuevo y vacío. Abrió la primera página. Su confesión no sería un informe. Sería la última entrada del diario. Una que él escribiría. Para ella, su dulce Lana.
+Con la caligrafía temblorosa de un hombre que se ve a sí mismo por primera vez, comenzó a escribir.
+
+“Lana… Soy yo. El monstruo que viste al final o lo que queda de él. El que te prometió un refugio y te arrastró al infierno. No hay tecnología que pueda borrar la mancha de tu sangre en mis manos. No hay ciencia que pueda silenciar tu voz, haciendo eco por mi universo. Creí que podía matar al pasado y renacer, creía que podría transformarme completamente en otra persona y así morir, sin morir. Pero tu memoria fue más fuerte. Tu amor y tu dolor me encontraron en la oscuridad y me obligaron a abrir los ojos, lo siento, ángel. No habrá un juicio para Dominick. Pero mi condena es esta: vivir cada día sabiendo que la única alma que alguna vez me vio de verdad fue la que yo mismo apagué. Mi castigo es recordarte. Recordarlo todo.”
+
+“Soy yo, Lana. El asesino al que buscabas.”
+
+Siguió escribiendo toda la noche, llenando cada página con la verdad, su voz finalmente uniéndose a la de ella en un testimonio eterno. Afuera, la ciudad futurista zumbaba con su indiferencia, pero dentro de esa habitación, un hombre estaba siendo sentenciado por un crimen que el mundo nunca podría probar. La justicia no vino de un juez. Vino de la tumba y escrita con tinta, dándole a la voz de una chica perdida el poder de hacer que su asesino la recordara para siempre o por lo menos lo que quedaba de la noche.
+
+a las 10:56 am de la mañana siguiente, la comisaría recibió una llamada por una alerta de suicidio. El detective Morgan había decidido quitarse la vida usando un objeto bastante particular: un cinturón de cuero.
+
+
+
+
+
+
+
+
+
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado
 

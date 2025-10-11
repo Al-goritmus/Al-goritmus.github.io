@@ -204,12 +204,7 @@ Siguió escribiendo toda la noche, llenando cada página con la verdad, su voz f
 a las 10:56 am de la mañana siguiente, la comisaría recibió una llamada por una alerta de suicidio. El detective Morgan había decidido quitarse la vida usando un objeto bastante particular: un cinturón de cuero.
 
 
-
-
-
-
-
-
+![lastpic](\img\posts\morgandeath.png)
 
 
 ## <a id="franco-iluminado"></a>Franco, el último iluminado

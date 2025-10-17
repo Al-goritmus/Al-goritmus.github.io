@@ -221,13 +221,10 @@ Alana interrumpió–Pero creo que también es asunto nuestro, no debería haber
 –También tomaste un curso de psicología social en la universidad. Dime, ¿que veían allí?–Erick caminaba lentamente hacia Arnold mientras hablaba—Tengo entendido que es un curso popular entre analistas de inteligencia e investigadores en seguridad, palabras refinadas para decir: Espía.
 
 Hubo un silencio sepulcral en la oficina de Alana mientras Arnold y Erick se miraban fijamente. Finalmente Arnold suavizó la mirada, agachó la mirada y replicó abatido —Es un plan de gobierno que no entiendes Erick, y no deberían interferir con esto, es algo más grande que nosotros, pero es por el bien de la nación, hay demasiado en juego y tenemos poco tiempo para hacer los cambios que el país necesita.
-—¿Pero qué clase de pertinencia van a tener esos cambios si no están basados en la realidad? ¿Qué importa más, lo que el gobierno cree que hace falta a esta sociedad o lo que realmente necesita? Porque aquí es dónde surgen las preguntas importantes, si se trata de imponer una visión del mundo o si vamos a implementar las soluciones que los datos nos señalen como pertinentes, sino, nada ha cambiado en la forma de hacer política en el mundo! Entonces no es parte de un cambio, es lo que quieres que el mundo crea que necesita, Arnold, no estás realmente cambiando nada.
 
-—¿Pero qué clase de pertinencia van a tener esos cambios si no están basados en la realidad? —Erick dio un paso hacia Arnold, su voz era un filo que cortaba el aire—. ¿Qué importa más: lo que el gobierno cree que hace falta o lo que realmente necesita la gente? Porque aquí es donde surgen las preguntas que nadie quiere hacer: ¿se trata de imponer una visión del mundo o de implementar soluciones reales?
 
- Erick se inclinó levemente hacia él, bajando la voz, como si las paredes pudieran escuchar.
 
- —Si no es lo segundo, nada ha cambiado… nada, Arnold. Lo que tú haces no es cambio, es control disfrazado de progreso.
+—¿Pero qué clase de pertinencia van a tener esos cambios si no están basados en la realidad? —Erick dio un paso hacia Arnold, su voz era un filo que cortaba el aire—. ¿Qué importa más: lo que el gobierno cree que hace falta o lo que realmente necesita la gente? Porque aquí es donde surgen las preguntas que nadie quiere hacer: ¿se trata de imponer una visión del mundo o de implementar soluciones reales?Erick se inclinó levemente hacia él, bajando la voz, como si las paredes pudieran escuchar.—Si no es lo segundo, nada ha cambiado… nada, Arnold. Lo que tú haces no es cambio, es control disfrazado de progreso.
 
 El silencio que siguió fue tan denso que se escuchaba el tic-tac del reloj como un martillo lejano. Arnold no parpadeó. Se puso de pie y dejó el café sobre el escritorio lentamente y se acercó a Alana. Su presencia llenaba la habitación.—No es lo que crees, Erick… —dijo con una calma inquietante—. Esto nunca fue sólo sobre datos.
 
@@ -241,6 +238,7 @@ Alana se quedó inmóvil. Sus manos, normalmente firmes y seguras, comenzaron a 
 Erick dio un paso adelante, casi con desesperación.
 
  —¿Proteger? ¿De qué hablas ahora? —su voz tembló entre rabia y miedo—. No eres un salvador, Arnold. Esto que haces es manipulación. Usas la confianza como arma.
+ 
 Arnold sonrió, no con burla, más bien con una serenidad que parecía invulnerable. —La confianza siempre es un arma, Erick. La diferencia está en quién la empuña y para qué.
 
 Alana sintió un nudo en la garganta. Entre ellos, el aire olía, nuevamente, a cedro, cuero y café frío, rememorando un escenario en el que ya había otras circunstancias, incluso otros actores. Y, por primera vez en mucho tiempo, tuvo la sensación de que ya no era dueña de su vida.
@@ -249,6 +247,7 @@ Erick miró a Arnold con una mezcla de odio y comprensión tardía. Lo entendió
 
 Arnold volvió a guardar la credencial en su blazer.
  —Tú puedes seguir luchando contra el sistema, Erick. Es noble, lo entiendo y alguna vez lo hice. Pero algunos de nosotros… —sus ojos se clavaron en él como anclas—, jugamos en otro tablero.
+
 En la ventana, la lluvia golpeaba como una ovación lenta y siniestra. La ciudad parecía ajena, pero en esa oficina, tres personas sabían que ya no habría vuelta atrás.
 Erick bajó la vista, sintiendo el peso de una derrota que no entendía del todo.
 

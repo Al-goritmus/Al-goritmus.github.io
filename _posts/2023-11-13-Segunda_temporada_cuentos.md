@@ -180,10 +180,12 @@ No respondió con palabras. El silencio se estiró, cargado con el olor a cedro 
 Extendió una mano y, con el dorso de los dedos, rozó la mandíbula de Erick, sintiendo la tensión de su piel. Hubo un contacto eléctrico, una descarga que diluyó de inmediato cualquier distancia entre ellos. Erick se estremeció y cerró los ojos por un instante, entregándose al gesto. La mano de Alana bajó por su cuello hasta el primer botón de su camisa. Sin prisa, con una deliberación que era a la vez clínica y sensual, lo desabrochó. Luego el segundo. Sus ojos nunca se apartaron de los de él. En ese acto no había promesas ni afecto; había una necesidad cruda de destruir la formalidad que los separaba, de validar sus acusaciones sobre el control, de la manera más carnal posible. Si él creía que ella mezclaba lo íntimo con lo laboral, entonces ella le daría la razón.
 
 Se inclinó hacia adelante, y el aroma a Rouge Royal se mezcló con el aroma a cedro y cuero de la oficina. Se miraron confundidos y sus labios se encontraron, no en un beso de pasión, sino en uno de exploración, de poder y de rendición mutua. Era un beso que sabía a rendición y a peligro, a la confesión de que, en el fondo, ambos estaban rotos de maneras compatibles. El mundo, con sus conspiraciones y sus fechas de entrega, dejó de existir más allá de los confines de aquel diván verde. Dónde los dos se dispusieron a confesar sus pecados y sus fantasías.
-Martes.
-
 
 ![secretapic4](\img\posts\vida_secreta_04.png)
+
+
+Martes.
+
 
 Arnold entró a la oficina de Alana con dos cafés y una sonrisa —¿Lista para entregar el reporte? — Arnold apagó su sonrisa al ver una expresión que no le gustaba ver en Alana.
 -No sé, ¿Estás seguro que no deberíamos revisar otra vez los hallazgos antes de ir a esa reunión? - Alana hizo ojos chinos como queriendo evitar ver una mala reacción en Arnold. - Por favor no te ofendas, no es mi intención.

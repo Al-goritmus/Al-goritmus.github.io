@@ -9,6 +9,7 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 ![firstpic](\img\posts\kthulu_implicit2.jpg)
 
 
+* [Vida secreta](#Vida-Secreta)
 * [El caso de Lana grimes](#Lana-grimes)
 * [Franco, el último iluminado](#franco-iluminado)
 * [Paradoja inmortal](#paradoja-inmortal)
@@ -16,6 +17,248 @@ background: '/img/posts/physician_distopia_dreams.jpg'
 * [Noche de luciernagas - Parte 2](#noche-luciernagas2)
 * [Lilith, salvadora de la humanidad](#lilith-salvadora)
 
+
+## <a id="Vida-Secreta"></a>Vida Secreta
+
+![secretapic1](\img\posts\vida_secreta_01.png)
+
+
+-Profundidad emocional es lo que le falta a alguien dominado por su ego, le falta la capacidad de conectar desde lo humano a nivel profundo, quiero decir; desde lo genuino y lo inmanente. - El profesor se dio vuelta hacia sus estudiantes y pasó la mirada despacio sobre varios de ellos, observó detenidamente sus miradas, algunas lucían encendidas y otras solamente concentradas, casi preocupadas. El auditorio magistral tenía 7 hileras de sillas rojas, las paredes estaban cubiertas de una madera distribuida en paneles ranurados que daban un toque elegante y serio al recinto, la luz era tenue hacia los estudiantes y aumentaba su intensidad hasta envolver al profesor, cuyo cabello lucía blanco y sus lentes reflejaban la luz ocultando su mirada. Continuó - Lo que hace falta, tal vez ahora más que nunca, es la capacidad de establecer lazos profundos, pero ¿de qué se compone un lazo profundo? ¿Cómo se construye?.
+
+Una mano se elevó en la penumbra. Arnold, siempre impecable y seguro, respondió:
+—Hay que abrirse, profesor. Compartir algo que no se comparte con los demás.
+
+—¿Y por qué eso haría especial un vínculo humano? —inquirió el profesor, metiendo las manos en los bolsillos.
+
+—Porque genera complicidad. Y la complicidad crea lazos duraderos. Lo leí en Altman y Taylor.
+—Exacto. Compartir la vida secreta… Es un arma de doble filo. Puede forjar confianza, pero también puede destruirla. Imaginen a un espía que finge abrirse con ustedes para extraer sus secretos. ¿Qué pasaría si ese “nuevo mejor amigo” compartiera sus cenas, sus salas, sus dormitorios? —hizo una pausa—. La persona más peligrosa puede estar sentada a su lado. La formación de un vínculo profundo es clave para forjar relaciones duraderas, pero también es un arma peligrosa, alguien puede decirme por qué? - El profesor levantó la mirada y sonrió como esperando una intervención estimulante. 
+
+-yo! - una estudiante de cabello rojo y ojos grandes y brillantes, levantaba la mano en las últimas filas, el profesor asintió para dar permiso a sus palabras, la pelirroja continuó con voz tenue, que daba la sensación de compartir un secreto. - Si una persona finge…o fingiera compartir su vida secreta podría lograr que otra persona comparta la suya, habría una ilusión de complicidad y podría, no sé, acceder a cosas, secretos, intimidades.
+
+El profesor que estaba de brazos cruzados, los abrió completamente como si estuviera a punto de predicar alguna verdad religiosa. La pelirroja suspiró aliviada y se recostó en su silla.
+
+-Bravo! Por eso es una técnica muy utilizada en análisis de inteligencia y espionaje. Alguien podría llegar a sus vidas y hacerles sentir que comparte con ustedes, los secretos más profundos, íntimos y vergonzosos que tiene. Se sentirán obligados de manera inconsciente a compartir los suyos, no será fácil evitar divulgar frente a esta persona, sus vidas secretas y entonces sentirán que es un lazo profundo, genuino y que pueden confiar completamente en este nuevo, gran amigo, que les obsequia la vida - El profesor se miró la punta de los zapatos, antes sentenciar: Su peor enemigo puede estar tan bien disfrazado que comparta sus dormitorios o sus salas de estar…o podría cenar junto a ustedes los miércoles y venderse como un amigo leal o podría estar sentado junto a ustedes. Si además están en situación de poder, pueden poner en peligro las organizaciones para las que trabajen o a sus familias o a un gobierno.-El profesor respiró profundamente e hizo una pausa antes de concluir- Terminó la clase, para la próxima semana, un ensayo del trabajo de Altman y Taylor con un ejemplo concreto de sus vidas o las de alguien cercano, que ilustre la aplicación o el impacto de la ausencia de este conocimiento. 
+
+La puerta del aula decía: Psicología social 02.
+
+. .
+
+Alana había conseguido un puesto importante en el gobierno de su país, a sus 35 años. No era una mujer especialmente rica en talentos académicos, no se le daba memorizar textos ni citar autores como a los maestros, las matemáticas le resultaban aburridas y a veces incomprensibles. Pero tenía, desde la escuela, una gran habilidad para coordinar y estimular a otras personas, lo que la había puesto una y otra vez en roles de liderazgo. Tenía una hija de 7 años y sabía que haría cualquier cosa para garantizar su bienestar. Su hija era su ancla al mundo. Era esbelta, tez blanca, cabello oscuro y ojos cafés de un tono que recordaba al vino tinto. Se preocupaba por verse perfecta siempre, combinaba la elegancia de la moda francesa con un aspecto ejecutivo impecable, manejaba con destreza el delicado balance entre la belleza y la elegancia, en un mundo lleno de jerarquías y dominado por hombres. 
+
+El resto del tiempo, cuando no era madre ni funcionaria del gobierno, tenía que escapar de una sensación de vacío opresiva que la acosaba, se aislaba y disfrutaba de la música de Pink Floyd y Led Zeppelin, así como de algunas drogas psicodélicas que le ayudaban a elevarse. Su vida iba perfecta y sin embargo, dormía mal en las noches, tenía sueños extraños en los que veía toda clase de cosas que no sabía cómo interpretar, ni le interesaba. Para colmo de males tenía a un empleado que la desafiaba diariamente, brillante pero imposible de manejar, Erick, uno de esos revoltosos sin causa, que de alguna manera se había trepado a lo más alto de su profesión y de la organización.
+
+La oficina de Alana tenía un gusto único. Las paredes eran blancas, con 5 retratos en un estilo pop art abstracto que mezclaba colores fucsia y verde fluorescente, dibujaban las caras de Salvador Dalí, Sigmund Freud, Jim Morrison, John Lennon y Freddie Mercury. A ambos lados había estanterías de vidrio con elementos culturales traídos de varios rincones del mundo: pequeñas esculturas de obsidiana egipcia, piezas arquitectónicas antiguas, fósiles, jarrones griegos y cuernos vikingos. El mensaje era claro: “He viajado por el mundo y no me impresionas fácil, admiro el arte surrealista y a los que dieron su vida por el arte, soy una mujer apasionada”. En el centro una alfombra con un mandala budista y a los lados dos sillones de terciopelo blanco que hacían juego con las paredes. Bajo la pared de los cuadros pop art se encontraba un diván verde estilo francés Luis XV que acentuaba el gusto de Alana por la psicología. Al lado opuesto había un escritorio unipersonal, sobre el que reposaban una computadora y libros que llevaban un buen tiempo sin ser leídos pero sin una mota de polvo que contaminara su aspecto. Cómo toda oficina ecléctica, quiere decir tantas cosas que no termina diciendo nada.  Erick entró sin llamar, con su humor ácido y esa seguridad que parecía no temer a nada.
+
+![secretapic2](\img\posts\vida_secreta_03.png)
+
+-Tenemos que tener esto para el martes, me están pidiendo resultados y ya no puedo esperar - Alana miraba a Erick decidida pero de alguna forma, también intimidada.
+
+-Tenemos que morirnos también…ok ok, es broma, no te enojes. Mira voy a tener lo que quieres para el martes- Erick sonreía como fuera de contexto, a Alana le dio la impresión de que no dimensionaba lo que implicaba fallar en la tarea.
+
+-Pero espero que sea verdad porque no quiero pensarte más de lo necesario.-Alana lucía seria y corporativa mientras decía semejante frase.
+
+-y no deseo que lo hagas, pero es sano buscar un balance entre nuestra necesidad de aprobación y la calidad de lo que hacemos aquí, si esto toma tiempo es porque es valioso.  Te prometo que va a salir bien, ok? - Erick inclinó la cabeza y mantuvo su mirada en los ojos de Alana para no dejarle opciones.
+
+-Si está bien, pero no olvides que yo valoro la puntualidad por encima de todo- Alana dijo esas palabras con una dulzura y una suavidad extrañamente ajenas a la discusión.
+
+-yo creo que lo importante es mantener un balance con la calidad y la claridad, el afán es enemigo de la perfección- Erick sonaba, como siempre, despreocupado y casual, pero se aseguró de aumentar la intensidad de su mirada sobre Alana.
+
+Hubo una pausa incómoda en la que ninguno habló. Solo se sostuvieron la mirada hasta que Alana miró hacia la ventana.
+
+Conscientes de la importancia de ser políticamente correctos, se dieron un abrazo rodeado de sonrisas mal fingidas. Erick pudo apreciar en el abrazo un perfume conocido, el Rouge Royal de Marina de Bourbon, recordó esa mezcla embriagadora de notas frutales y amaderadas y lo que significaba para él, un par de imágenes atravesaron su mente, el perfume tenía su historia, entonces prolongó intencionalmente el abrazo y pudo sentir un suspiro involuntario de Alana, él se alejó de inmediato y se marchó sin decir nada.
+
+..
+
+-¿Qué te dijo tu empleado favorito? - Arnold a sus 38 años, tenía menos cabello que en sus años de estudiante sabelotodo, llevaba un blazer café con parches de profesor, lucía tan despreocupado como Erick pero más dispuesto y atento a Alana, que levantó las cejas y suspiró antes de responder. 
+
+-Que la calidad es más importante que la puntualidad y que no debo preocuparme - dijo distraída, miraba por la ventana a los edificios de la ciudad, se llevó la mano a un bolsillo de una chaqueta de tweed estilo francés y sacó un cigarrillo, se dispuso a encenderlo.
+
+-Bueno esperemos que no nos quede mal. yo creo que el muchacho sabe lo que hace.Tenle paciencia, a lo mejor y te sorprende. - Arnold rió de manera exagerada y social.
+
+-No me importa que sepa, me importa que entregue. -Alana dejaba escapar lentamente el humo mientras hablaba, sin inmutarse.
+
+-¿Recuerdas que te conté sobre la hija que no pude reconocer y que apareció hace poco? Se comporta igual que Erick, pero creo que por lo mismo no me preocupa, son maneras de ser y con la madurez vienen los cambios, relájate.
+
+El sol descendía lentamente al fondo arrojando tonos naranja y rojos, sonaba el sólo de génesis de Soda Stereo y Alana se tomó un par de minutos en responder.
+
+-Al final eres la única persona que realmente me entiende, me encanta tener aquí a alguien con quien no tengo que vivir de secretos y las cosas pueden ser súper transparentes.- Arrojó el cigarrillo a medio acabar a una caneca metálica y caminó hasta el lado de Arnold.
+
+Se quedaron contemplando el atardecer por la ventana de la oficina, si acaso sintiendo y compartiendo alguna nostalgia…
+
+Erick no sabía qué hacer, estaba bloqueado. La presión de la fecha límite lo agobiaba y la actitud de Alana lo irritaba. Sabía que su trabajo era bueno, excelente incluso, pero la constante demanda de inmediatez le restaba valor al proceso creativo, el más importante desde su perspectiva. Se sentía subestimado, como si su aporte  fuera un simple engranaje en una máquina que no comprendía.
+
+Se levantó de su escritorio y caminó hacia la ventana de su propia oficina. Vivía en un pequeño apartamento en el centro de la ciudad, con vistas a una zona llena de edificios de grandes empresas y del gobierno, a su izquierda una zona glamurosa y llena de vida, a su derecha una zona peligrosa y llena de muerte. La ciudad se extendía ante él, un mar de luces y edificios, se preguntó cuántas de esas personas estaban atrapadas en dilemas similares, luchando por la calidad en un mundo obsesionado con la velocidad. Entendió por noble su propósito. Dio vueltas un rato sin éxito hasta que perdió la paciencia, sacó su teléfono y marcó un número.
+
+-¿Qué hay, viejo? ¿Estás libre para una cerveza? Necesito desahogarme. - Era su amigo Marcos, un analista con una mente tan caótica como la suya, pero con una habilidad innata para encontrar la lógica en el desorden.
+
+-Claro, siempre hay tiempo para una cerveza, y para distraernos, más cuando se trata de tu crisis existencial. ¿Alana otra vez? - Marcos se rió al otro lado de la línea.
+
+-Sí, ella y sus plazos imposibles. Siento que no valora el esfuerzo, solo el resultado final. - Erick suspiró y le dió una pequeña patada a la pared.
+
+Se dispusieron a repetir la aventura de un tal Dante, navegar juntos los 9 círculos. Se encontraron en un viejo bar de madera que olía a libros y a whiskey barato.
+
+-Así es la vida. Yo diría que es el común denominador hoy en día, algunos solo ven el final del camino, otros disfrutamos el viaje. Pero no te desanimes, siempre encuentras la manera de brillar, ya ha sucedido antes y al final todo está bien. - Marcos tenía una capacidad brutal de infundir confianza sin ser condescendiente. – El sistema no es el infierno, Marcos. Es una máquina con un fallo de diseño. Y lo explotan con el miedo y la necesidad de aprobación.
+Marcos rió.
+
+ —Entonces dales lo justo para que crean que ganan, y haz lo tuyo por debajo.
+
+No necesitaban un viaje simbólico; lo que Erick necesitaba era una autopsia. Agarró una servilleta, empezó a dibujar diagramas. "Una  maldita máquina con un fallo de diseño. El problema no es el diablo ni sus seguidores, es un virus que explota una vulnerabilidad conocida: el miedo y la necesidad de aprobación de la gente, la promesa de crecer y ascender hacer que todos se lleven al límite para no sé qué hijueputas, porque al final es lo mismo, ganan más y se sienten superiores, pero es la misma puta mierda al final". Durante horas, desarmaron el mecanismo, pieza por pieza. No hablaban de pecados, sino de patologías mentales y sociales. La catarsis se bebió lentamente mientras transitaban por lugares peligrosos y se adueñaron de la noche. "Para destruir una máquina", concluyó Marcos, llenando dos vasos con ginebra, "primero debes saber exactamente cómo funciona. Y tú, amigo, entiendes cómo le funciona a esta gente la cabeza, dales contentillo, entregar ese mínimo resultado que los haga felices". La primera luz del día no fue una promesa de salvación, sino el frío resplandor de la realidad, que siempre vuelve, lo quieras o no.
+
+
+![secretapic3](\img\posts\vida_secreta_02.png)
+
+La conversación con Marcos le dio un respiro. Luego de dormir profundamente, volvió a su escritorio con ideas nuevas. Tal vez Alana no era el problema, sino el sistema. O tal vez, simplemente, eran dos personas con prioridades diferentes, obligadas a colaborar. Empezó a teclear, la velocidad aumentando a medida que las ideas fluían. No sería perfecto, pero sería lo mejor que pudiera lograr en el tiempo que tenía y eso, para él, era suficiente.
+
+Lunes
+
+Alana estaba leyendo de manera distraída algunos correos electrónicos, respondía primero los más urgentes, luego los de menor prioridad, un ritual habitual de lunes en la mañana. Camila, una mujer pelirroja de cabello corto, se acercó con unas carpetas llenas de archivos sobre el personal de la empresa. 
+
+-Este empleado de tu dependencia, Erick, es problemático? - Camila hojeaba las hojas de vida mientras esperaba la respuesta de Alana, golpeando rápidamente con su tacón el suelo.
+
+-No en particular, hasta ahora ha hecho bien las cosas, ¿por qué? - Alana se llevó el dedo índice de manera instintiva a la boca y lo mordió de lado.
+
+-Ha tenido problemas en otros lugares, parece que se le acusó injustificadamente de haber expuesto a propósito una gran cantidad de datos para un conglomerado internacional, pero fue declarado inocente luego de una investigación.
+
+-Es inocente entonces. Estoy respondiendo algunos correos, ¿te importa si continúo? - Alana sonaba molesta pero no sabía exactamente por qué, solo quería a la pelirroja fuera de su vista.
+
+El martes por la mañana, la tensión en la oficina era palpable. Erick, con ojeras que delataban una noche en vela, dejó una carpeta sobre el escritorio de Alana sin decir una palabra. Dentro no estaba el informe que ella esperaba, sino un análisis crudo y denso, lleno de gráficos y proyecciones que ella no entendía a primera ni a segunda ni a tercera vista. Justo en ese momento, entró Arnold, sonriente y con dos cafés en la mano. —El café de la victoria —dijo, ofreciéndole uno a Alana—. Sabía que nuestro chico maravilla lo lograría. ¿Qué tal los resultados?.
+
+Alana abrió la carpeta, su irritación fue creciendo al ver la complejidad del documento. —No es lo que pedí, Arnold. Es… otra cosa. Un análisis sobre la metodología, no entiendo nada. -Sintió un frío en el abdomen seguido de un calor de enojo en el cuello y las orejas.
+
+Arnold echó un vistazo por encima del hombro de Alana, su sonrisa se desvaneció y fue reemplazada por una máscara de preocupación. —Ah, ya veo. El clásico Erick. Se pierde en la teoría y no puede ejecutar. Alana, no tenemos tiempo para esto. Te propongo algo: un nuevo modelo de análisis que he estado desarrollando. Es más ágil, un algoritmo elegante que procesa las tendencias clave y nos da los resultados que la cúpula quiere ver, rápido y limpio. Es un atajo brillante. Le entregó una presentación impecable, con un diseño minimalista y frases contundentes. Prometía eficiencia, claridad y, sobre todo, velocidad. Para Alana, presionada y confundida por el caótico informe de Erick, la propuesta de Arnold parecía un salvavidas.
+
+—Esto es lo que necesito —dijo Alana, sintiendo un alivio inmediato—. Algo claro y directo.
+
+—Somos un equipo, Alana. Yo me encargo de la estrategia, tú de la ejecución. Juntos somos imparables —dijo Arnold, dándole una palmada suave en el hombro. La complicidad que sentía con él era su único ancla en la tormenta.
+Más tarde, Alana llamó a Erick a su oficina. Estaba decidida a imponer el modelo de Arnold. Su oficina olía a ozono por una desinfección exhaustiva, simbólica, además sonaba el rock psicodélico de Tangerine Stoned —¡A Erick!, hola, te cuento que vamos a usar esta nueva metodología. Quiero que adaptes tus datos a este sistema para mañana, hoy llegas tarde y ya se termina el día.
+
+Erick miró la presentación de Arnold con ojos cada vez más abiertos, una expresión de incredulidad cruzó su rostro. —Alana, esto no es un atajo. Es una trampa. Este algoritmo tiene un sesgo, ¿qué carajos? Esto está diseñado para ignorar anomalías y datos periféricos. Si lo usamos, las conclusiones van a ser peligrosamente engañosas!.
+
+—Arnold lo diseñó. Es el mejor estratega que tenemos —replicó Alana, a la defensiva y mirando hacia los lados mientras hablaba, Erick notó un rubor leve en sus mejillas. - Cierra con seguro, no quiero que nadie te escuche gritando y menos sobre el trabajo de Arnold .
+
+—¡Es un estratega, no un analista! —la voz de Erick se elevó por primera vez, hizo una pausa para cerrar y continuó—. Escúchame, hay una diferencia entre vender una idea y buscar la verdad. Esto es maquillaje. Peor aún, es una mentira que, si se convierte en política de estado, podría afectar a miles de personas. ¡A sus trabajos, a su seguridad!
+
+—¡Basta! —exclamó Alana, mientras sentía cómo la información que Camila le había dado sobre Erick encajaba perfectamente—. Tu historial de "exponer datos" de repente cobra sentido. ¿Estás saboteando esto a propósito? ¿Estás en contra de las políticas de este gobierno?. 
+
+-No estás viendo las cosas con claridad, ¿qué te han dicho? Quiero que seas honesta y me digas que te han dicho sobre mi pasado. - Erick respiraba agitadamente, esperando lo peor.- Dime!
+-Que, qué tuviste un proceso legal por exposición de datos sensibles.- La voz de Alana temblaba de enojo y de miedo a descubrir algo peor.
+
+Erick descansó su cuerpo y mirada al unísono, su rostro se suavizó hasta mirarla con una dulzura que Alana desconocía, se giró y se sentó en el diván verde, dispuesto a confesar la verdad.—Mira, no es fácil decirte lo que te voy a decir y espero que no lo divulgues…En ese lugar descubrí cosas terribles. Se alteraba intencionalmente los resultados de las pruebas diagnósticas a un montón de pacientes en varios lugares del mundo, para hacerlos elegibles para probar un nuevo medicamento. Me tomó un tiempo darme cuenta pero este medicamento tiene evidencia muy controversial en torno a él. Parece que causa cambios cerebrales a largo plazo, que incluyen deterioro de las neuronas en espejo del cerebro, las que permiten la empatía y honestamente, no sé porque querían seguir adelante con la investigación de esta molécula pero había un conglomerado muy poderoso detrás de todo eso. — Alana respiraba agitadamente mientras escuchaba a Erick, parecía transitar del enojo al desagrado, Erick se recostó mirando al techo, sobrado y  fuera de contexto como siempre, continuó - creo que a alguien muy poderoso en el sistema le conviene deteriorar la empatía de la población, creo que somos mejores consumidores sin eso que nos hace buenas parejas o buenos amigos. yo…—Se agarró el pantalón con fuerza — yo tenía que hacer algo, luego recibí amenazas y decidí acercarme al gobierno para ganar protección, el magistrado que me metió aquí sabe que hay algo con mi pasado y que aquí no es fácil tocarme.
+
+Hubo una pausa, Erick miró de reojo a Alana como diciendo: responde.
+
+-por qué no me lo dijiste antes? - Alana sonaba molesta y hablaba con los dientes apretados.
+
+-Querías que llegara y me presentara diciendo que sufrí una demanda por exposición de datos sensibles?—Erick se giraba un anillo en la mano y miraba con amargura a Alana- Lo que me salvó de ir a la cárcel es que este gobierno que tu apoyas, está contra esas corporaciones que expuse.
+
+-Lo que no puedo creer es que no hayas confiado en mí para algo así, yo te hubiera apoyado pero tú, no confías en mí.
+-No puedo confiar en nadie desde que hice lo que hice. Recibí amenazas de muerte encriptadas, no me siento a salvo. ¿De qué estás hablando? - Erick sentía su corazón latiendo con fuerza, estaba indignado con Alana, pero una parte de él quería abrazarla y disculparse por “traicionarla”.
+
+-Que no puedo creer que uno de mis empleados tenga conmigo semejantes secretos, es que no puedo creerlo, ¿Qué más me puedo esperar? ¿Dime? No voy a poder confiar en tí igual que antes.
+Hubo una pausa, un ambientador esparció un olor a cedro y cuero por la oficina, al mismo tiempo que comenzaba a sonar Honey, There 's No Time de Feng Suave. 
+
+Erick replicó enojado—Lo que yo no puedo creer es que pretendas que tu vida laboral funcione como tus relaciones íntimas! Perdona, pero me parece extraño, tal vez, que esperes que tus compañeros de trabajo no tengan vida privada y te cuenten todo sin más! 
+
+-No es eso, es que las mentiras y los secretos destruyen todo.
+
+-Es tu afán de control, quieres controlarlo todo, quieres que yo funcione solo para cumplir tus estándares imposibles y te molesta porque simplemente no quiero hacerlo, no quiero ni puedo estar a nivel de lo que sea que tu esperas de la gente. 
+
+-Quiero que lo hagas bien, que hagamos las cosas a tiempo y que te apropies de este proyecto!.
+
+-Quieres que todo sea tu propiedad, ¡quieres que yo lo sea!. –Erick lanzó esas últimas palabras en automático, solo salieron y él mismo dio un pequeño resalto.
+
+El silencio se apoderó de la oficina. Solo sonaba la guitarra de Feng Suave y otro atardecer inundaba el lugar dando vida al gusto ecléctico de Alana. La acusación de Erick quedó suspendida en el aire, cortante y brutalmente honesta. El rock psicodélico de la oficina, pasó por algunos tramos sensuales y se inundó de cadencias profundas, el aire se hizo más pesado mientras se miraban en silencio, se hizo un zumbido caótico que envolvía la demolición de la realidad. El enojo en sus rostros se desvaneció. Las facciones de Alana siempre controladas, se aflojaron. Su respiración, antes agitada por la furia, se volvió lenta, profunda, hasta que a Erick le pareció escuchar un suspiro de rendición. Comenzó a llover en el clímax del atardecer, dibujando un paisaje dorado lleno de luces rojas cada vez más escasas, el sol se ocultaba.
+
+Erick permaneció en el diván verde, observándola. Había arrojado su última carta, la verdad más afilada de todas, y ahora solo podía esperar el impacto. Vio cómo la mujer corporativa, la jefa impenetrable, se disolvía frente a él. La vio, quizás por primera vez, como simplemente: Alana.
+
+No respondió con palabras. El silencio se estiró, cargado con el olor a cedro y cuero que invadía el espacio, la confesión de un crimen internacional y una intimidad forzada, debían estar locos. Lentamente, como si se moviera a través del agua, Alana dio un paso hacia él. Luego otro. Se detuvo justo frente al diván donde él estaba sentado, su sombra cubriéndolo parcialmente. 
+
+Él levantó la vista, sus ojos oscuros encontrando los de ella, y en ellos  vio a la mujer que había abrazado, a la que llevaba el perfume de su pasado. Alana se arrodilló lentamente frente a él cuando el último rayo del sol se ocultó, un gesto de sumisión tan impropio de ella que a Erick se le cortó la respiración. Su mirada no era de disculpa, sino de una curiosidad intensa, casi febril.
+
+—Tú eres el que quiere controlar todo... —susurró ella, repitiendo sus palabras, pero no como una refutación, más bien como una revelación. Sus ojos brillaban fascinados y sonreía sin poder disimularlo.- Cada pequeño detalle de lo que haces, quieres que sea perfecto, temes equivocarte, temes decepcionarme y como no puedes controlar cada variable, prefieres controlarme a mí, para que te dé el tiempo suficiente para estar seguro de que todo funciona y para que nadie más lo haga.
+
+Extendió una mano y, con el dorso de los dedos, rozó la mandíbula de Erick, sintiendo la tensión de su piel. Hubo un contacto eléctrico, una descarga que diluyó de inmediato cualquier distancia entre ellos. Erick se estremeció y cerró los ojos por un instante, entregándose al gesto. La mano de Alana bajó por su cuello hasta el primer botón de su camisa. Sin prisa, con una deliberación que era a la vez clínica y sensual, lo desabrochó. Luego el segundo. Sus ojos nunca se apartaron de los de él. En ese acto no había promesas ni afecto; había una necesidad cruda de destruir la formalidad que los separaba, de validar sus acusaciones sobre el control, de la manera más carnal posible. Si él creía que ella mezclaba lo íntimo con lo laboral, entonces ella le daría la razón.
+
+Se inclinó hacia adelante, y el aroma a Rouge Royal se mezcló con el aroma a cedro y cuero de la oficina. Se miraron confundidos y sus labios se encontraron, no en un beso de pasión, sino en uno de exploración, de poder y de rendición mutua. Era un beso que sabía a rendición y a peligro, a la confesión de que, en el fondo, ambos estaban rotos de maneras compatibles. El mundo, con sus conspiraciones y sus fechas de entrega, dejó de existir más allá de los confines de aquel diván verde. Dónde los dos se dispusieron a confesar sus pecados y sus fantasías.
+Martes.
+
+
+![secretapic4](\img\posts\vida_secreta_04.png)
+
+Arnold entró a la oficina de Alana con dos cafés y una sonrisa —¿Lista para entregar el reporte? — Arnold apagó su sonrisa al ver una expresión que no le gustaba ver en Alana.
+-No sé, ¿Estás seguro que no deberíamos revisar otra vez los hallazgos antes de ir a esa reunión? - Alana hizo ojos chinos como queriendo evitar ver una mala reacción en Arnold. - Por favor no te ofendas, no es mi intención.
+
+Arnold frunció el seño antes de continuar y comenzó a explicar con paciencia infantil. —Necesitamos que el senado apruebe la propuesta del ministerio de ciencias, para admitir fondos internacionales en la investigación médica.—Hay mucha gente detrás de esto, los hallazgos son los necesarios para que las cosas avancen, para que el país mejores.
+
+-Creo que Erick está muy preocupado porque no encuentra consistentes algunos datos, pero si tu me aseguras que están bien, yo te creo.
+
+Arnold sonaba cada vez más dulce y preocupado, como si le hablara a una niña–¿Recuerdas cuando te conté cómo saqué mi grado en ingeniería industrial?, tuve que hacer, bueno tu sabes, algunas cosas que se alinean con la filosofía de: Hacer lo necesario. hay que saber hacer lo necesario, tú sabes todo sobre mí, he hecho lo necesario pero siempre pensando en un bien mayor. Te conozco lo suficiente para saber que también has hecho lo necesario en el pasado y que no lo hiciste pensando en hacer daño. Somos compañeros en esta y todas las batallas.
+
+Alana experimentó una combinación extraña de emociones, el cariño y la confianza que tenía con Arnold le hacían sentir una gran complicidad, y su experiencia era una garantía de éxito, pero Erick se aparecía en su mente, molesto, irreverente, revulsivo, errático y poco confiable, pero aún así talentoso y profundo. “Tal vez Erick tenía razón y estoy manejando mi vida laboral con mis emociones, pero es como siempre he manejado todo y me ha funcionado”. –Pensó Alana mientras miraba distraída a Arnold que no se callaba. – “y Erick tiene un pasado que no puedo ignorar, no puedo confiarme y si le da por pensar que estamos haciendo algo indebido, sería el primero en armar una alboroto”.
+
+–¡Hey! Sigues ahí–Arnold chasqueó los dedos con una sonrisa divertida frente a Alana.
+
+–Si, si, está bien, lo haremos como dices.
+
+Alana procedió cómo Arnold lo quería. Al día siguiente se tomaron decisiones con el informe de Arnold. Se profirieron decretos, medidas y se aprobó un protocolo del gobierno que cambiaba el enfoque presupuestal y la gestión de varios planes de gobierno. Ambos estaban celebrando el impacto de su imprudencia cuando Erick irrumpió en la oficina de Alana.
+
+–Hola, ¿Cómo están?-Formalizó Erick, pero no era una pregunta pues continuó de inmediato y con una voz contenida pero que anunciaba una tormenta––¿Puedo saber a qué se debe todas esas medidas del gobierno? ¿A qué debemos el nuevo plan de ejecución presupuestal?¿Tiene algo que ver con el informe que me mostraste ayer?
+
+–Publicamos el análisis de Arnold, y a diferencia de lo que veníamos haciendo, esto fue un éxito––Replicó Alana con una voz fría y la mirada indiferente.
+
+–Solo queríamos ayudarte a tener más tiempo para resolver tus cosas, sabemos que el reporte completo vendrá de tu mano –Terció Arnold con una sonrisa política y ensayada mientras se acomodaba el blazer, a Erick le dió la impresión de que se sacaba los bolsillos como negando al dragón oculto en la habitación.––Danos tu opinión abiertamente, no debe haber nada oculto entre nosotros.
+
+–¡Entiendo! Me gusta, de hecho me gusta eso que dices sobre que no debería haber nada oculto entre nosotros, y yo creo que deberías comenzar por contarnos por qué eres psicólogo y no ingeniero cómo dice tu hoja de vida pública.–Erick apretaba los dientes en algunas palabras, invadido por el enojo.
+
+–Esos son asuntos del gobierno que no deberían quitarte la tranquilidad–Replicó Arnold con la voz tranquila y una mirada sombría que a Erick le dió la sensación de hacer la habitación más fría.
+
+Alana interrumpió–Pero creo que también es asunto nuestro, no debería haber secretos entre nosotros, tu lo dijiste–Se puso de pie y se llevó las manos al rostro cubriendo su boca y esperando lo peor.
+
+–Alana no vas a creer que toda nuestra historia es mentira sólo por eso, ¿o sí?–Arnold esbozó una sonrisa tímida que solo dejaba ver sus dientes frontales, una que Erick conocía bien, y supo que era momento de atacar.
+
+–También tomaste un curso de psicología social en la universidad. Dime, ¿que veían allí?–Erick caminaba lentamente hacia Arnold mientras hablaba—Tengo entendido que es un curso popular entre analistas de inteligencia e investigadores en seguridad, palabras refinadas para decir: Espía.
+
+Hubo un silencio sepulcral en la oficina de Alana mientras Arnold y Erick se miraban fijamente. Finalmente Arnold suavizó la mirada, agachó la mirada y replicó abatido —Es un plan de gobierno que no entiendes Erick, y no deberían interferir con esto, es algo más grande que nosotros, pero es por el bien de la nación, hay demasiado en juego y tenemos poco tiempo para hacer los cambios que el país necesita.
+—¿Pero qué clase de pertinencia van a tener esos cambios si no están basados en la realidad? ¿Qué importa más, lo que el gobierno cree que hace falta a esta sociedad o lo que realmente necesita? Porque aquí es dónde surgen las preguntas importantes, si se trata de imponer una visión del mundo o si vamos a implementar las soluciones que los datos nos señalen como pertinentes, sino, nada ha cambiado en la forma de hacer política en el mundo! Entonces no es parte de un cambio, es lo que quieres que el mundo crea que necesita, Arnold, no estás realmente cambiando nada.
+
+—¿Pero qué clase de pertinencia van a tener esos cambios si no están basados en la realidad? —Erick dio un paso hacia Arnold, su voz era un filo que cortaba el aire—. ¿Qué importa más: lo que el gobierno cree que hace falta o lo que realmente necesita la gente? Porque aquí es donde surgen las preguntas que nadie quiere hacer: ¿se trata de imponer una visión del mundo o de implementar soluciones reales?
+
+ Erick se inclinó levemente hacia él, bajando la voz, como si las paredes pudieran escuchar.
+
+ —Si no es lo segundo, nada ha cambiado… nada, Arnold. Lo que tú haces no es cambio, es control disfrazado de progreso.
+
+El silencio que siguió fue tan denso que se escuchaba el tic-tac del reloj como un martillo lejano. Arnold no parpadeó. Se puso de pie y dejó el café sobre el escritorio lentamente y se acercó a Alana. Su presencia llenaba la habitación.—No es lo que crees, Erick… —dijo con una calma inquietante—. Esto nunca fue sólo sobre datos.
+
+Con un gesto preciso, metió la mano en el bolsillo interior de su blazer y sacó una credencial negra, sin más adornos que un sello dorado que a Erick le heló la sangre. Lo conocía. Inteligencia exterior.
+Erick sintió un golpe en el estómago; no físico, sino una mezcla de sorpresa y confirmación que solo llega cuando los peores temores se vuelven verdad.
+
+Arnold giró la credencial hacia Alana, no hacía Erick, como si la conversación real no fuera con él.—Yo también estoy aquí para proteger a algunas personas… —la miró con una intensidad que la dejó sin aire—. Tú eres una de ellas.
+
+Alana se quedó inmóvil. Sus manos, normalmente firmes y seguras, comenzaron a temblar. Erick la miró buscando complicidad, una señal de que iba a cuestionarlo, de que no caería en la trampa. Pero no la encontró. Fue como ver a alguien caminar lentamente hacia un abismo.
+
+Erick dio un paso adelante, casi con desesperación.
+
+ —¿Proteger? ¿De qué hablas ahora? —su voz tembló entre rabia y miedo—. No eres un salvador, Arnold. Esto que haces es manipulación. Usas la confianza como arma.
+Arnold sonrió, no con burla, más bien con una serenidad que parecía invulnerable. —La confianza siempre es un arma, Erick. La diferencia está en quién la empuña y para qué.
+
+Alana sintió un nudo en la garganta. Entre ellos, el aire olía, nuevamente, a cedro, cuero y café frío, rememorando un escenario en el que ya había otras circunstancias, incluso otros actores. Y, por primera vez en mucho tiempo, tuvo la sensación de que ya no era dueña de su vida.
+
+Erick miró a Arnold con una mezcla de odio y comprensión tardía. Lo entendió todo: el informe, la metodología, los gestos de camaradería… todo había sido un tablero de ajedrez, y él no era más que una pieza que ya había sido movida.
+
+Arnold volvió a guardar la credencial en su blazer.
+ —Tú puedes seguir luchando contra el sistema, Erick. Es noble, lo entiendo y alguna vez lo hice. Pero algunos de nosotros… —sus ojos se clavaron en él como anclas—, jugamos en otro tablero.
+En la ventana, la lluvia golpeaba como una ovación lenta y siniestra. La ciudad parecía ajena, pero en esa oficina, tres personas sabían que ya no habría vuelta atrás.
+Erick bajó la vista, sintiendo el peso de una derrota que no entendía del todo.
+
+Alana, en cambio, no apartó la mirada de Arnold, su mirada reflejaba tristeza y resignación, fue la primera traición de su vida, en la que un poder superior la obligaba a no objetar una sola palabra, finalmente asintió y sonrió de medio lado a Arnold. En ese cruce silencioso, se selló algo más que un acuerdo:  su lealtad.
+
+Erick lo supo. Eso lo destruyó más que cualquier dato manipulado.
+
+Final de la parte I
+
+![secretapic5](\img\posts\vida_secreta_05.png)
+
+![secretapicfinal](\img\posts\vida_secreta_00.png)
 
 
 ## <a id="Lana-grimes"></a>El caso de Lana Grimes

@@ -31,6 +31,7 @@ Una mano se elevó en la penumbra. Arnold, siempre impecable y seguro, respondi�
 —¿Y por qué eso haría especial un vínculo humano? —inquirió el profesor, metiendo las manos en los bolsillos.
 
 —Porque genera complicidad. Y la complicidad crea lazos duraderos. Lo leí en Altman y Taylor.
+
 —Exacto. Compartir la vida secreta… Es un arma de doble filo. Puede forjar confianza, pero también puede destruirla. Imaginen a un espía que finge abrirse con ustedes para extraer sus secretos. ¿Qué pasaría si ese “nuevo mejor amigo” compartiera sus cenas, sus salas, sus dormitorios? —hizo una pausa—. La persona más peligrosa puede estar sentada a su lado. La formación de un vínculo profundo es clave para forjar relaciones duraderas, pero también es un arma peligrosa, alguien puede decirme por qué? - El profesor levantó la mirada y sonrió como esperando una intervención estimulante. 
 
 -yo! - una estudiante de cabello rojo y ojos grandes y brillantes, levantaba la mano en las últimas filas, el profesor asintió para dar permiso a sus palabras, la pelirroja continuó con voz tenue, que daba la sensación de compartir un secreto. - Si una persona finge…o fingiera compartir su vida secreta podría lograr que otra persona comparta la suya, habría una ilusión de complicidad y podría, no sé, acceder a cosas, secretos, intimidades.
@@ -152,6 +153,7 @@ Hubo una pausa, Erick miró de reojo a Alana como diciendo: responde.
 -Querías que llegara y me presentara diciendo que sufrí una demanda por exposición de datos sensibles?—Erick se giraba un anillo en la mano y miraba con amargura a Alana- Lo que me salvó de ir a la cárcel es que este gobierno que tu apoyas, está contra esas corporaciones que expuse.
 
 -Lo que no puedo creer es que no hayas confiado en mí para algo así, yo te hubiera apoyado pero tú, no confías en mí.
+
 -No puedo confiar en nadie desde que hice lo que hice. Recibí amenazas de muerte encriptadas, no me siento a salvo. ¿De qué estás hablando? - Erick sentía su corazón latiendo con fuerza, estaba indignado con Alana, pero una parte de él quería abrazarla y disculparse por “traicionarla”.
 
 -Que no puedo creer que uno de mis empleados tenga conmigo semejantes secretos, es que no puedo creerlo, ¿Qué más me puedo esperar? ¿Dime? No voy a poder confiar en tí igual que antes.
@@ -246,6 +248,7 @@ Alana sintió un nudo en la garganta. Entre ellos, el aire olía, nuevamente, a 
 Erick miró a Arnold con una mezcla de odio y comprensión tardía. Lo entendió todo: el informe, la metodología, los gestos de camaradería… todo había sido un tablero de ajedrez, y él no era más que una pieza que ya había sido movida.
 
 Arnold volvió a guardar la credencial en su blazer.
+
  —Tú puedes seguir luchando contra el sistema, Erick. Es noble, lo entiendo y alguna vez lo hice. Pero algunos de nosotros… —sus ojos se clavaron en él como anclas—, jugamos en otro tablero.
 
 En la ventana, la lluvia golpeaba como una ovación lenta y siniestra. La ciudad parecía ajena, pero en esa oficina, tres personas sabían que ya no habría vuelta atrás.
@@ -260,6 +263,11 @@ Final de la parte I
 ![secretapic5](\img\posts\vida_secreta_05.png)
 
 ![secretapicfinal](\img\posts\vida_secreta_00.png)
+
+
+
+..
+
 
 
 ## <a id="Lana-grimes"></a>El caso de Lana Grimes
